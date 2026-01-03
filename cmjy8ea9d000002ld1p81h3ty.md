@@ -1,0 +1,25 @@
+---
+title: "Sám Hối Tập Khí – Thanh Tịnh Đạo Tràng"
+datePublished: Sat Jan 03 2026 11:40:27 GMT+0000 (Coordinated Universal Time)
+cuid: cmjy8ea9d000002ld1p81h3ty
+slug: sam-hoi-tap-khi-thanh-tinh-dao-trang-296
+canonical: http://timkhaithi.pmtl.site/2025/12/sam-hoi-tap-khi-thanh-tinh-ao-trang.html
+tags: nghiep-chuong
+
+---
+
+**Hỏi:** Chúng ta phải học cho biết sám hối, tức là phải sám hối toàn bộ những tập khí tích lũy từ nhiều đời, những tập khí do di truyền, những nghiệp chướng tích lũy từ nhiều đời. Hôm nay quý vị theo Sư phụ học Phật, quý vị quỳ trước mặt Bồ Tát Quán Thế Âm, quý vị làm sai một việc, quý vị sẽ sám hối một việc, thực tế đây gọi là tiểu sám hối. Vậy thế nào mới là đại sám hối thật sự?
+
+**Đáp:** ‘Bồ Tát từ bi con, con là phàm nhân thân xác bằng thịt, con không hiểu, con nhiều đời đã làm nhiều việc không tốt như thế, con đều sám hối, hôm nay con lại làm sai việc rồi, Bồ Tát Quán Thế Âm, con lại sám hối.’ Đây gọi là đại sám đấy. Nếu quý vị chỉ nói: ‘Hôm nay con làm sai một việc, Bồ Tát phù hộ phù hộ con với, đừng để ông chủ đơn vị của con đuổi việc con.’ Loại sám hối này có hữu dụng không? Sám hối chính là sám hối những tập khí tích lũy từ nhiều đời nhiều kiếp của bản thân.
+
+Lấy một ví dụ đơn giản, người này thích trộm đồ, cuối cùng lại bị người ta bắt được, chính là bởi vì từ nhỏ đã trộm chút đồ nên mới có quả báo ngày hôm nay. Nếu thật sự sám hối, anh ta phải nói với thầy giáo: ‘Thầy ơi, con chính là từ nhỏ không học hành cho tốt, nên mới có thói quen xấu này, con về sau thật sự không như vậy nữa, con từ nhỏ đến bây giờ vẫn luôn sám hối, con ngày hôm qua làm việc xấu này, con ngày mai nhất định không làm nữa.’ Nhưng bởi vì có cái gốc ở đó, lần sau vẫn sẽ mọc ra nghiệp chướng và oán kết tích lũy từ nhiều đời, anh ta vẫn sẽ lại đi trộm, cho nên phải đại sám hối, tiểu sám hối thì không thể giải quyết được vấn đề.
+
+Khi quý vị sám hối rồi, con người của quý vị sẽ trở thành một pháp khí thanh tịnh. Tại sao? Giống như một đạo tràng thanh tịnh vậy, bởi vì sau khi quý vị sám hối, tức là quý vị đã quét sạch những thứ dơ bẩn trong tâm linh của mình, để cho những thứ dơ bẩn đó toàn bộ rời khỏi thân thể, thân xác và linh hồn của quý vị, tâm của quý vị liền đạt được sự an định và sạch sẽ, giống như một đạo tràng thanh tịnh, Bồ Tát có thể thường trụ trong tâm quý vị bất kỳ lúc nào. Cho nên sám hối là quan trọng nhất, sám hối tương đương với việc ở nhân gian không ngừng lau rửa và tẩy sạch, quý vị liền trở thành một pháp khí, Bồ Tát vừa trụ trên thân quý vị, Bồ Tát liền có thể dùng pháp khí của quý vị để độ người, để giúp người ta, có thể đi cứu người. Nếu không sạch sẽ thì làm sao có thể trở thành pháp khí được? Quý vị có được một đạo tràng thanh tịnh, quý vị liền có thể tiếp nhận được pháp lưu thanh tịnh, bởi vì quý vị đã trở thành một loại pháp khí rồi, cho nên quý vị mới có thể để những pháp của Phật lưu lại trong tâm mình.
+
+Phải hiểu rằng, khó khăn chính là làm cho quý vị bị vây khốn bên trong. Người ta nói, ‘khó khăn’ chính là ‘phát mộc’, một chữ ‘mộc’, phía trên thêm một chữ ‘khẩu’, thì thành chữ ‘ngốc’, một người ngốc rồi thì sẽ phát mộc; nếu trong tâm quý vị có một chữ ‘mộc’, mà toàn thân của quý vị lại bao vây nó lại, thì đó chính là chữ ‘khốn’ trong ‘khó khăn’. Theo phong thủy mà nói cũng là như vậy, nếu quý vị muốn xây nhà, quý vị đặt một khúc gỗ ở giữa, rồi bên ngoài sân lại vây lại trước, thì chính là một chữ ‘khốn’, vậy ngôi nhà này của quý vị nhất định xây không tốt, khó khăn chồng chất, đây chính là đạo lý. Nếu trong tâm chúng ta nghĩ không thông, thì sẽ phát mộc, sẽ ngốc ra. Vì vậy, phải nghĩ cho thông, nghĩ cho rõ ràng, thì con người này mới được cứu.
+
+Sư phụ hy vọng quý vị học Phật phải dùng diệu pháp. Diệu pháp là gì? Có câu nói ‘biết mình biết người’, biết tâm hiểu tâm, hiểu được tâm của người khác thì quý vị mới có thể hóa giải được tâm của người ta, cho nên học Phật cứu người thật sự chính là cứu tâm. Thực tế, niệm kinh chính là niệm khí, niệm tâm. Khí của quý vị không thuận, trong miệng vẫn đang mắng người, trong tâm vẫn đang tức giận, quý vị nói xem cái ác khí này của quý vị chẳng những niệm không tốt kinh văn, mà còn sẽ mang cái ác khí này vào trong kinh văn, đây chính là phỉ báng kinh Phật, là làm ô uế kinh Phật. Vì vậy, khí của quý vị phải thuận, người tâm bình khí hòa mới có thể niệm kinh cho tốt. Tại sao nhiều người đốt rất nhiều Ngôi nhà nhỏ mà hiệu quả vẫn không tốt? Bởi vì tâm không bình, khí không hòa. Còn có rất nhiều người khi niệm giải kết chú thì lại nghĩ tốt nhất là đối phương bị bệnh hay bị tai nạn xe, trong tâm tràn đầy oán hận. Sư phụ nói cho quý vị biết, như vậy là quý vị lại tạo nghiệp, nghiệp chướng lại đi vào trong cơ thể quý vị, kinh văn làm sao có hiệu quả được? Hy vọng quý vị phải hiểu rằng, khi niệm kinh nhất định phải sạch sẽ, tuyệt đối không được có tạp niệm.
+
+BTPP 7-33: SÁM HỐI TẬP KHÍ – THANH TỊNH ĐẠO TRÀNG.
+
+Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót, không Đúng Lý Đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.
