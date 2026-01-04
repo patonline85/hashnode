@@ -1,0 +1,57 @@
+---
+title: "Vấn đề ải nạn và thọ mệnh; đời người vô thường nhưng có thể thay đổi nhờ học Phật tu tâm"
+datePublished: Sun Jan 04 2026 13:34:28 GMT+0000 (Coordinated Universal Time)
+cuid: cmjzrwr4y000202le0mkn4lrh
+slug: van-de-ai-nan-va-tho-menh-doi-nguoi-vo-thuong-nhung-co-the-thay-doi-nho-hoc-phat-tu-tam-125
+canonical: http://timkhaithi.pmtl.site/2025/12/van-e-ai-nan-va-tho-menh-oi-nguoi-vo.html
+tags: cai-menh
+
+---
+
+**wenda20130825B 34:00**
+
+**Vấn đề ải nạn và thọ mệnh; đời người vô thường nhưng có thể thay đổi nhờ học Phật tu tâm**
+
+
+
+
+**Nữ thính giả:**
+
+**Có một số đồng tu vì gặp ải nạn hoặc bệnh tật của cơ thể, nếu qua được ải nạn đó thì có thể thọ mệnh sẽ được kéo dài thêm hay không? Nếu có đồng tu bị thối chuyển thì kiếp nạn của họ vẫn sẽ đến phải không ạ?**
+
+
+
+
+**Đài Trưởng đáp:**
+
+**Sai, điều cô nói là sai rồi. Họ trải qua một ải nạn của thân thể, thọ mệnh chỉ có rút ngắn chứ không kéo dài, trừ khi trong lúc gặp ải nạn đó họ tạo rất nhiều công đức, vượt qua giới hạn hồi phục của thân thể thì mới có thể kéo dài thọ mệnh của họ.**
+
+
+
+
+**(Nữ thính giả: Nếu nói rằng vốn dĩ phía sau họ vẫn còn thọ mệnh, chỉ vì gặp ải nạn tam lục cửu, vậy sau khi vượt qua ải này thì họ sẽ hưởng tiếp phần thọ mệnh phía sau, đúng không ạ?)**
+
+
+
+
+**Đài Trưởng đáp: Cái gì gọi là ải nạn? Ải nạn mà qua được thì là qua, không qua được thì hết đời. Ví dụ người xem mệnh nói bạn có thể sống đến 69 tuổi, nhưng 39 tuổi đã mất thì bạn không còn cái mệnh đó nữa.**
+
+
+
+
+**Không phải nói xem mệnh nói sống đến 69 tuổi thì nhất định sống được đến 69 tuổi; nếu không có duyên phần, có thể đến 39 hoặc 49 tuổi đã mất rồi. Đây chính là sự vô thường của nhân gian, không phải xem mệnh nói có là nhất định sẽ có. Tại sao xem mệnh nói người này phát tài mà lại không phát tài?**
+
+
+
+
+**(Nữ thính giả:Sư phụ muốn nói là thật ra thế gian này trời đất vô thường, trong quá trình chúng ta học Phật tu tâm thì đạo tâm cũng là vô thường đúng không ạ?)**
+
+
+
+
+**Đài Trưởng đáp: Đúng vậy, con nghĩ đến *Liễu Phàm Tứ Huấn* thì sẽ hiểu. Xem mệnh nói Viên Liễu Phàm sống không lâu, không có con, nhưng về sau ông tụng kinh, học Phật, tu tâm, sống hơn bảy mươi tuổi, con cái đầy đủ. Chẳng phải đó là nhờ tụng kinh mà thay đổi sao?**
+
+
+
+
+**Đời người có thể thay đổi, nếu không thì các con học Phật để làm gì? Nếu ai cũng biết rằng không thể thay đổi thì còn ai chịu quỳ lạy nữa?**
