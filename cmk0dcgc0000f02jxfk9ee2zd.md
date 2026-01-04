@@ -1,0 +1,89 @@
+---
+title: "Quỳ lên bàn thờ Phật để dán tranh sơn thủy thì chỉ được là nam đồng tu, và phải trải vải đỏ"
+datePublished: Sun Jan 04 2026 23:34:32 GMT+0000 (Coordinated Universal Time)
+cuid: cmk0dcgc0000f02jxfk9ee2zd
+slug: quy-len-ban-tho-phat-de-dan-tranh-son-thuy-thi-chi-duoc-la-nam-dong-tu-va-phai-trai-vai-do-721
+canonical: http://timkhaithi.pmtl.site/2025/11/quy-len-ban-tho-phat-e-dan-tranh-son.html
+tags: ban-tho-phat
+
+---
+
+Wenda20180204B 02:32
+
+Nam thính giả: Một sư huynh đã lập gia đình quỳ lên bàn thờ để dán tranh sơn thủy. Xin hỏi sau khi dán xong thì khăn trải bàn thờ có cần thay mới không? Hay là có thể tiếp tục dùng để dùng cho bàn thờ Phật, thắp hương thỉnh Bồ Tát ạ?
+
+Sư phụ đáp: Là nam hay nữ?
+
+( Nữ. )
+
+Ôi, nữ thì đừng lên đó, phải là nam mới được. Nếu là nam thì chỗ quỳ phải trải vải đỏ.
+
+( Dạ được. )
+
+Không được đâu, nữ không được leo lên. Nếu leo lên thì Bồ Tát sẽ không đến, hết cách rồi, Hộ Pháp Thần còn sẽ nổi giận nữa. Cho nên Quan Âm Đường của các con làm sao vậy? Đừng làm bừa. Mấy chuyện như vậy phải ghi rõ ra. Còn “nữ cũng leo lên” nữa chứ, các con đừng đùa, sao lại không hiểu vậy! Không hỏi cho sớm được sao?
+
+( Sư phụ, con xin lỗi, con không nghĩ ra. Con cảm ơn sư phụ từ bi khai thị. )
+
+Wenda20180204B 02:32 跪在佛台上贴山水画只能是男同修，而且要铺红布
+
+男听众：已婚师兄跪在佛台上粘贴山水画，请问贴完以后上面的台布需要换新的吗？还是可以直接供佛台，上香请菩萨？
+
+台长答：男的女的？（女的）唉，女的就别上去了，要男的。如果是男的，跪的地方要铺红布（好的）不可以的，女的不能上去的，上去的话菩萨都不来的，这没办法的，护法神会发怒的。所以你这个观音堂怎么弄啊？不要乱来，这些东西都要写出来的。还“女的上去”了，你们不要开玩笑，怎么这么不懂！不能早点问的？（师父，不好意思，因为没有想到。感恩师父慈悲开示）
+
+———————————————
+
+Lư Đài Trưởng khai thị giải đáp nghi hoặc (233)
+
+Hỏi:
+
+Nam đồng tu có thể quỳ trước bàn Phật để dán tranh Sơn Thủy. Vậy vì sao nữ đồng tu lại không thể quỳ trước bàn Phật để dán tranh Sơn Thủy?
+
+Đáp:
+
+Nữ thuộc âm. Âm dương – Càn Khôn, đây là quy tắc truyền lại từ xưa trong Phật pháp. Không phải vì lý do gì đặc biệt, mà vốn dĩ là như vậy.
+
+卢台长开示解答来信疑惑（二百三十三） 问：男同修可以跪在佛台贴山水画，女同修为什么不能跪在佛台上贴山水画？ 答：女的属阴。阴阳乾坤，这是自古以来，佛法传下来的，没有什么理由的。
+
+———————————————
+
+Giải đáp nghi hoặc (208) – 2018-02-17
+
+Nữ đồng tu quỳ lên bàn Phật để dán tranh Sơn Thủy, cần niệm Lễ Phật Đại Sám Hối Văn
+
+Hỏi:
+
+Sư phụ khai thị trong chương trình rằng khi dán tranh Sơn Thủy trên bàn Phật, phải quỳ lên bàn Phật để dán, nhưng chỉ nam đồng tu mới có thể làm, và phải trải vải đỏ. Có đồng tu trước đây không hiểu, đã từng quỳ lên bàn Phật để dán rồi. Như vậy bàn Phật còn có thể sử dụng tiếp được không?
+
+Lư Đài Trưởng đáp:
+
+Có thể sử dụng. Nếu việc đó xảy ra trước khi thắp hương thì không sao. Nhưng đồng tu ấy cần niệm Lễ Phật Đại Sám Hối Văn để sám hối.
+
+【解答来信疑惑（二百零八）】 20180217 女同修跪在佛台上贴山水画，要念礼佛 问：师父在节目中开示，贴佛台上山水画时要跪在佛台上贴，只能是男师兄，而且要铺红布。同修以前不懂，已经跪在上面过了，佛台还可以用吗？ 卢台长答:可以用，在上香之前的话就没有关系，但是要念礼佛大忏悔文忏悔。
+
+———————————————
+
+Wenda20180218B 03:33 – Nữ đồng tu quỳ lên bàn thờ để dán tranh sơn thủy, chỉ có thể tùy duyên
+
+Nữ thính giả: Lần trước sư phụ khai thị nói bàn thờ nếu bị nữ sư huynh quỳ lên thì Bồ Tát sẽ không đến. Vị nữ sư huynh này đúng là có quỳ lên bàn thờ để dán tranh sơn thủy. Vậy bàn thờ này còn dùng được không? Khăn phủ trên bàn thờ còn dùng được không?
+
+Sư phụ đáp: Quỳ thì quỳ rồi, không sao cả.
+
+Wenda20180218B 03:33 女同修贴山水画跪过佛台，只能随缘
+
+女听众：上次师父开示说佛台如果被女师兄跪过了，菩萨就不来。这位女师兄的确跪在佛台上贴山水画了，这个佛台还能用吗？佛台上的台布还能用吗？
+
+台长答：跪了就跪了，没关系的。
+
+———————————————
+
+Wenda20170409B 38:44 – Phụng sự viên dán tranh nền bàn thờ tốt nhất nên ăn chay trường
+
+Nữ thính giả: Sư phụ, khi lập bàn thờ, các phụng sự viên sẽ giúp Phật hữu dán bức tranh nền màu vàng đã được sư phụ khai quang, thường là vài ngày trước khi thỉnh Bồ Tát an vị. Xin hỏi, người phụ trách dán tranh nền có cần phát nguyện ăn chay trường không?
+
+Sư phụ đáp: Thỉnh thoảng làm thì không sao, chỉ cần niệm “Tịnh khẩu nghiệp chân ngôn” là được rồi.
+
+Wenda20170409B 38:44 贴佛台背景画的义工最好要吃全素
+
+女听众：师父，设佛台的义工会在佛友供菩萨前几天帮佛友贴上师父开过光的黄色背景画，请问，负责贴背景画的义工是否需要许愿吃全素？
+
+台长答：偶然的就没关系，念念净口业真言就可以了。
