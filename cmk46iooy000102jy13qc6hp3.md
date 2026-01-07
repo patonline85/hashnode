@@ -1,0 +1,27 @@
+---
+title: "Có hình xăm âm khí nặng, tốt nhất nên xóa bỏ và tụng kinh hóa giải"
+datePublished: Wed Jan 07 2026 15:34:31 GMT+0000 (Coordinated Universal Time)
+cuid: cmk46iooy000102jy13qc6hp3
+slug: co-hinh-xam-am-khi-nang-tot-nhat-nen-xoa-bo-va-tung-kinh-hoa-giai-940
+canonical: http://timkhaithi.pmtl.site/2025/09/co-hinh-xam-am-khi-nang-tot-nhat-nen.html
+tags: khai-thi
+
+---
+
+Nữ thính giả: Thưa Sư phụ, bây giờ nhiều người trẻ xăm hình lên người, vậy những hình xăm này có tạo nghiệp không ạ?  
+
+Sư phụ (Đài Trưởng) đáp: Dĩ nhiên là không tốt rồi.Những hình xăm này đều thuộc loại âm khí rất nặng. 
+
+Nếu chỗ xăm kín đáo, không lộ ra thì cố gắng che đi; còn nếu lộ rõ, tốt nhất nên chịu đau một chút để xóa bỏ (Thưa Sư phụ, cần tụng bao nhiêu biến Lễ Phật Đại Sám Hối và bao nhiêu tờ nnn ạ?). 
+
+Phải tụng nhiều đấy: 500 biến Lễ Phật Đại Sám Hối và 108 tờ nnn (Dạ, con cảm ơn Sư phụ!).  
+
+Wenda20151016 01:04:12
+
+有紋身陰氣重 最好弄掉並念經化解
+
+女聽眾:師父,現在的小孩身上有很多紋身 ,那麼這些紋身是不是會造業呢?
+
+台長答:當然不好了。這些刺青都是屬於陰 氣很重的,如果看不見,遮遮好;如果看得 見,最好吃點痛苦把它弄掉(師父,要念多 少遍禮佛大懺悔文和多少張小房子?)有得 念了,念500遍禮佛大懺悔文,小房子念108 張(好的,感恩師父!)
+
+Wenda20151016 01:04:12
