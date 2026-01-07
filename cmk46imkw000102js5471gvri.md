@@ -1,0 +1,23 @@
+---
+title: "Sau khi ăn trường chay, nếu còn phải giúp người nhà mua đồ mặn thì có cần niệm Vãng Sanh Chú và Lễ Phật Đại Sám Hối Văn không?"
+datePublished: Wed Jan 07 2026 15:34:28 GMT+0000 (Coordinated Universal Time)
+cuid: cmk46imkw000102js5471gvri
+slug: sau-khi-an-truong-chay-neu-con-phai-giup-nguoi-nha-mua-do-man-thi-co-can-niem-vang-sanh-chu-va-le-phat-dai-sam-hoi-van-khong-441
+canonical: http://timkhaithi.pmtl.site/2025/09/sau-khi-truong-chay-neu-con-phai-giup.html
+tags: an-chay
+
+---
+
+Hỏi 16: Sau khi ăn trường chay, nếu còn phải giúp người nhà mua đồ mặn thì có cần niệm Vãng Sanh Chú và Lễ Phật Đại Sám Hối Văn không?
+
+Hỏi: Con là đệ tử, học Phật được ba năm rồi, ăn trường chay. Vì bạn đời của con không tin Phật, vẫn còn ăn mặn, nên con muốn hỏi: có lúc không tránh được phải giúp đối phương mua cơm mặn, cầm đồ mặn, nhờ mẹ nấu đồ mặn cho anh ấy (vì con không biết nấu), hoặc mời đối phương ăn mặn... Như vậy thì sau mỗi lần như thế, con chỉ cần niệm Vãng Sanh Chú cho những đồ mặn đó là có thể tiêu tội không? Hay là dù có niệm Vãng Sanh Chú rồi thì cũng vẫn còn nghiệp chướng? Con có cần phải niệm thêm Lễ Phật Đại Sám Hối Văn nữa không?
+
+Đáp: Nếu mua đồ sống thì là phạm đại giới. Còn nếu mua đồ chín, gọi là tam tịnh nhục, thì tội nhỏ hơn nhiều. Dù là thịt của con vật đã chết rồi thì cũng phải niệm Vãng Sanh Chú, nếu có thể niệm thêm Lễ Phật Đại Sám Hối Văn thì càng tốt.
+
+�Giải đáp thắc mắc thư (210) — 20180225
+
+问16 吃全素后还要帮家人买荤食要念往生咒和礼佛大忏悔文吗
+
+问：我是弟子，学佛三年了，吃全素，因另一半不信佛，还吃荤，想问一下有时候避免不了要帮对方买荤的饭菜、拿荤的东西、让妈妈煮荤的饭菜给他（因为自己不会煮）、请对方吃荤等等。是不是过后每一次都念往生咒给那些荤的就能灭罪？还是念了往生咒也是照样有业障？要再念礼佛大忏悔文是吗？�答：如果买活的就是犯大戒了，如果买的熟食三净肉，这个罪孽就小很多。哪怕死的都要念往生咒，能念诵礼佛大忏悔文最好。
+
+来信解答二百一十 20180225
