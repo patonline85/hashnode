@@ -1,0 +1,39 @@
+---
+title: "Nguyên nhân buồn ngủ khi niệm kinh và Lưỡi cứng khi niệm kinh"
+datePublished: Thu Jan 08 2026 15:34:36 GMT+0000 (Coordinated Universal Time)
+cuid: cmk5lyncw000102l5grw535tl
+slug: nguyen-nhan-buon-ngu-khi-niem-kinh-va-luoi-cung-khi-niem-kinh-504
+canonical: http://timkhaithi.pmtl.site/2025/08/nguyen-nhan-buon-ngu-khi-niem-kinh-va.html
+tags: buon-ngu-khi-niem-kinh
+
+---
+
+Nguyên nhân buồn ngủ khi niệm kinh
+
+Wenda20110909 01:12:31
+
+Thính giả: Con muốn hỏi một chuyện, lúc con niệm kinh cứ thấy mơ màng, niệm không nổi!  
+
+Sư phụ đáp : Niệm không nổi có thể là do có người đang gấp đòi con trả kinh văn.  
+
+———————————————
+
+Lưỡi cứng khi niệm kinh
+
+Wenda20120513B 54:05
+
+Thính giả: Lúc niệm kinh, đôi khi niệm một hồi thì lưỡi cứng đơ, như bị nứt gốc lưỡi, là sao ạ?  
+
+Sư phụ đáp: Đơn giản thôi, khí huyết của con không thông. Niệm kinh quá chấp trước, tổn huyết, tức là âm thanh không phát ra, cứ niệm thầm bên trong nên lưỡi bị cứng. Nếu con niệm ra tiếng một chút thì lưỡi sẽ không bị như vậy.  
+
+Wenda20110909 01:12:31 念经昏沉的原因
+
+听众：我想请教一件事，我念经的时候晕晕沉沉的，念不下去啊！
+
+台长：念不下去有可能是有人急着问你要经文。
+
+Wenda20120513B 54:05 念经舌头硬
+
+听众：念经的时候，有的时候念念，舌头就硬了，就是根裂了，是怎么回事？
+
+台长：很简单，你的气血不通。念经的时候太执著，伤血了，就是声音不出来，老在里边念，你的舌头就会硬，如果你能够出点声音的话，舌头就不会硬。
