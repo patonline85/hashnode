@@ -1,0 +1,29 @@
+---
+title: "CHỈ THỜ PHỤNG BỒ TÁT CỦA PHÁP MÔN TÂM LINH THÌ CÀNG DỄ DÀNG HƠN CHO VIỆC NHẤT MÔN TINH TẤN"
+datePublished: Tue Jan 13 2026 01:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmkbx5abb000002jr1kotfclh
+slug: chi-tho-phung-bo-tat-cua-phap-mon-tam-linh-thi-cang-de-dang-hon-cho-viec-nhat-mon-tinh-tan-402
+canonical: http://timkhaithi.pmtl.site/2025/08/chi-tho-phung-bo-tat-cua-phap-mon-tam.html
+tags: ban-tho-phat
+
+---
+
+Wenda20200726 02:52
+
+Thính giả nữ: Chúng con trong quá trình độ người, một số đồng tu ngoài tượng Bồ Tát của Pháp Môn Tâm Linh ra đồng tu còn có thờ phụng các vị Bồ Tát khác trên bàn thờ, hoặc trường hợp nữa là họ giữ nguyên những tượng Phật, Bồ Tát trước đó mà họ đã thờ phụng và thờ thêm tượng Quán Thế Âm Bồ Tát của Pháp Môn Tâm Linh . Con xin hỏi Sư phụ, thờ phụng theo cách này thì trường khí của của bàn thờ có bị hỗn tạp không ạ ?  Nó không có lợi cho sự nhất môn tinh tấn tu tập của chúng ta đúng không ạ ?
+
+Đài trưởng đáp: Vì đối với những Phật hữu vừa mới bước vào Pháp Môn …dĩ nhiên sư phụ mong muốn họ tinh tấn. Một số Phật hữu đã có tu tập qua những Pháp Môn khác, họ cũng sẽ có chút gì đó luyến tiếc không nỡ từ bỏ, vậy thì có thể thờ phụng cả hai bên. Bồ Tát là rất đại từ đại bi nên không sao cả.  Nhưng đối với bản thân người tu học Phật pháp mà nói thì nhất môn tinh tấn đương nhiên là sẽ tốt hơn.  Lấy một ví dụ đơn giản, trước đây người này họ học vật lý, nhưng bây giờ họ chuyển sang học y, đây đều là chứng chỉ tốt nghiệp đại học.Nhưng nếu người này đã chuyển sang học y nhưng vẫn cứ tiếp tục học vật lý, vậy con nghĩ xem người này họ có nhất môn tinh tấn không?  Sau khi ra trường người này y học học không tốt, vật lý cũng học không tốt.
+
+Thính giả nữ: Dạ hiểu. Con cảm ơn Sư phụ vì vậy chúng ta phải cung kính tất cả chư Phật và Bồ Tát. Chúng ta tu luyện theo Pháp Môn Tâm Linh chúng ta nhất môn tinh tấn. Thờ phụng bàn thờ Phật của Pháp Môn Tâm Linh, chư Phật và Bồ Tát đều hoan hỷ. Sư phụ có nói qua, bàn thờ Phật của chúng ta là đạo tràng của Quán Thế Âm Bồ Tát, nếu có chư Phật, Bồ Tát khác có duyên với chúng ta thì dù không thờ phụng chư Phật Bồ Tát cũng vẫn đến trợ duyên và gia trì . Chúng ta bây giờ đã tu học theo Pháp Môn Tâm Linh và nhất môn tinh tấn đối với việc thờ phụng bàn thờ cũng nên có sự chọn lọc, KHÔNG PHẢI thờ phụng càng nhiều Bồ Tát là càng tốt. Xin hỏi Sư phụ cách lý giải như vậy có đúng không ạ ?)
+
+Đài trưởng đáp: Đó là điều đương nhiên rồi. Lấy một ví dụ đơn giản, việc con kết bạn với một nghìn người và chỉ kết bạn với mười người có giống nhau không? Con kết bạn với một nghìn người, một nghìn người bạn này con không thể chăm sóc tốt cho hết thảy họ được, đúng không?
+
+Thính giả nữ: Dạ đúng.
+
+Đài trưởng đáp: Còn nếu con chỉ kết bạn với mười người và một lòng một dạ mà kết bạn với họ vậy có phải là mười người bạn này, họ cũng sẽ quan tâm chăm sóc con không ?
+
+Thính giả nữ: Dạ phải ạ.
+
+Đài trưởng đáp: Đạo lý chính là như vậy. Bởi vì là ở nhà không phải ở chùa, ở chùa thì khác chùa thì rộng lớn cho nên có thể thờ phụng nhiều vị Phật Bồ Tát, con chỉ một cái bàn thờ nho nhỏ thờ phụng nhiều như vậy, chăm sóc không được chu đáo, lạnh nhạt thất lễ với Bồ Tát, có khi ngược lại thành không tôn sư trọng đạo rồi.
+
+Thính giả nữ: Dạ con đã hiểu.
