@@ -1,0 +1,13 @@
+---
+title: "Béo phì có thể vừa đi bộ vừa niệm Tâm Kinh"
+datePublished: Wed Jan 14 2026 17:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmkeavrjj000002k2fkz8g131
+slug: beo-phi-co-the-vua-di-bo-vua-niem-tam-kinh-150
+canonical: http://timkhaithi.pmtl.site/2025/08/beo-phi-co-vua-i-bo-vua-niem-tam-kinh.html
+tags: benh-beo-phi
+
+---
+
+Béo phì có thể vừa đi bộ vừa niệm Tâm Kinh
+
+Trích “Huyền Nghệ Vấn đáp ” ngày 21 tháng 10 năm 2012Thính giả: Hiện tại con không thấy có vấn đề gì khác, chủ yếu là cơ thể khá béo, có thể niệm kinh gì không ạ?Đài Trưởng: Vừa đi bộ vừa niệm kinh cũng rất tốt, đi lại trong nhà rồi niệm Tâm Kinh, như vậy có thể tiêu được rất nhiều mỡ.(Ồ, vậy tốt quá, vì bình thường con không hay đi bộ.)Ừ, càng ngồi thì càng béo.(Đúng đúng, béo phì cũng không tốt cho sức khỏe.)Vì béo phì sẽ dẫn đến rất nhiều bệnh trong cơ thể. (Đúng vậy.)肥胖可以一边走路一边念心经——2012年10月21日《玄艺问答》听众：我现在其他的也没发现什么问题，主要是身体比较肥胖，可以念什么经？台长：一边走路一边念经也蛮好的，在家里走走路，然后念心经应该可以消掉你很多的脂肪的（哦，那好，因为我一般不走路的）嗯，越坐越胖的（对对，肥胖的话对身体也不好）因为肥胖会让人身体上很多毛病出来的（对）
