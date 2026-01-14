@@ -1,0 +1,31 @@
+---
+title: "Thân người khó được – Tu hành chỉ có thể ở nhân gian"
+datePublished: Wed Jan 14 2026 05:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmkdl5rsg000002jsc2sog1ve
+slug: than-nguoi-kho-duoc-tu-hanh-chi-co-the-o-nhan-gian-567
+canonical: http://timkhaithi.pmtl.site/2025/08/than-nguoi-kho-uoc-tu-hanh-chi-co-o.html
+tags: khai-thi
+
+---
+
+Hỏi: Con người chúng ta có nhiều cơ hội làm việc công đức. Vong linh cũng có cơ hội làm việc công đức phải không? Nếu vong linh cứu được 1 mạng người thì họ có công đức không? Có thể tiêu tội được không?
+
+
+
+
+Đài trưởng trả lời: Làm sao vong linh có thể cứu được con?
+
+Ý này của con là con vong linh đã cứu mạng con, vậy cứu bằng cách nào? Nói cho thầy nghe xem
+
+(điều này dường như con thường thấy trong phim ảnh)
+
+Vì vậy yêu cầu con bớt xem phim lại. Càng xem càng bị mê hoặc, một vong linh bình thường khó có thể là thiện vong, con hiểu không? Đa số những vong ám lên người con đều là đến để đòi nợ. Làm sao họ có thể tiêu trừ nghiệp chướng của mình? Một khi họ bị xuống dưới sẽ rất khó tiêu trừ được nghiệp chướng, trừ khi không bị trừng phạt mà có thể sống ở âm ty địa phủ thì họ vẫn có thể tụng kinh ở dưới đấy. Nhưng con phải biết điều này, ở nơi đau khổ như vậy, có bao nhiêu người tụng kinh?
+
+Ở nơi hưởng thụ cũng không chịu tụng kinh.
+
+Ở nơi đau khổ cũng không chịu tụng kinh, chỉ có ở cõi người mới là nơi tụng kinh tốt nhất, bởi vì cõi người không hoàn toàn đau khổ, thường khổ và cũng thường vui, trong trạng thái thường vui và thường khổ thì con người mới có thể tụng kinh. Khổ đến tột cùng chẳng hạn như ở trong tù thì ai chịu tụng kinh? Và ai chịu tụng kinh trong khi họ đang hưởng thụ vui vẻ, giàu có, quyền lực, nổi tiếng và thuận lợi cực độ? Chỉ có những người trong chúng ta khổ nhất thời, vui nhất thời nên chúng ta mới có thể tụng kinh.
+
+
+
+
+Câu hỏi từ hội cộng tu ở Hội nghị Những người bạn Phật giáo Thế giới 20171202 tại Auckland, New Zealand
