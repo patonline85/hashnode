@@ -1,0 +1,48 @@
+---
+title: "Bạch thoại Phật pháp hằng ngày của Sư phụ – 2021.08.18"
+datePublished: Fri Jan 16 2026 05:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmkgg1h07000c02l13b7lbfcr
+slug: bach-thoai-phat-phap-hang-ngay-cua-su-phu-20210818-436
+canonical: http://timkhaithi.pmtl.site/2025/08/bach-thoai-phat-phap-hang-ngay-cua-su.html
+tags: btpp
+
+---
+
+Luân hồi là một việc vô cùng đau khổ, cũng là một việc không có ý nghĩa gì.
+
+Một người có trí tuệ, có Phật tính, sẽ không để bản thân rơi vào luân hồi.
+
+Tự để mình luân hồi, chính là đang hủy hoại huệ mạng của chính mình.
+
+Bồ Tát đã ban cho chúng ta bản tính tốt đẹp, lương tâm và huệ mạng quý giá như vậy, tuyệt đối không được làm hoen ố nó.
+
+ Phải dùng huệ mạng này — sợi dây cứu mạng duy nhất — giống như kéo quả khinh khí cầu, đưa mình trở về trời, trở về bên mẹ.
+
+
+
+
+
+
+
+《Tin Phật cần có niềm tin kiên cố》– phần dưới (4)
+
+
+
+
+轮回是一件
+
+非常痛苦的事情，
+
+也是一件没有意义的事情。
+
+一个有智慧有佛性的人，是不会让自己轮回的，
+
+让自己轮回就是糟蹋自己的慧命。
+
+菩萨给我们这么好的
+
+本性、良心、慧命，绝对不能糟蹋掉，要用这个慧命——唯一的一条救命线，拉着气球一样，回到天上，回到妈妈身边。
+
+师父每日白话佛法 2021.08.18
+
+《信佛需要信根力》下（四）
