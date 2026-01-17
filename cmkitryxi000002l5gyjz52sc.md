@@ -1,0 +1,55 @@
+---
+title: "Vượt Qua Trần Thế Phàm Trần, Khơi Dậy Trí Tuệ Gốc Rễ (Hạ) – Trích Lược Bài Khai Thị tại Buổi Gặp Gỡ Phật Tử Thế Giới ở Hồng Kông của Đài Trưởng Lư Quân Hoành ngày 21 tháng 6 năm 2015
+2016-06-16"
+datePublished: Sat Jan 17 2026 21:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmkitryxi000002l5gyjz52sc
+slug: vuot-qua-tran-the-pham-tran-khoi-day-tri-tue-goc-re-ha-trich-luoc-bai-khai-thi-tai-buoi-gap-go-phat-tu-the-gioi-o-hong-kong-cua-dai-truong-lu-quan-hoanh-ngay-21-thang-6-nam-2015-2016-06-16-900
+canonical: http://timkhaithi.pmtl.site/2025/07/vuot-qua-tran-pham-tran-khoi-day-tri.html
+tags: khai-thi
+
+---
+
+**2015-06-24 卢台长香港《世界佛友见面会》**
+
+Vượt Qua Trần Thế Phàm Trần, Khơi Dậy Trí Tuệ Gốc Rễ (Hạ) – Trích Lược Bài Khai Thị tại Buổi Gặp Gỡ Phật Tử Thế Giới ở Hồng Kông của Đài Trưởng Lư Quân Hoành ngày 21 tháng 6 năm 2015
+
+2016-06-16
+
+Một người sống trên đời không nên dựa dẫm vào người khác mà phải dựa vào chính mình. Rất nhiều người có thói quen ỷ lại vào người khác, cuối cùng lại đánh mất cơ hội của chính mình. Có một người đàn ông, vì một tai nạn xe hơi mà mất đi một cánh tay, anh ta rất sợ gặp người khác, càng sợ sự đồng cảm của người khác làm tổn thương lòng tự trọng của mình. Một lần, anh ta gặp một người bạn trên phố, anh ta vội vàng trốn vào một con hẻm nhỏ. Trong lúc hoảng loạn, anh ta va vào một cô bé và giẫm rất mạnh lên chân cô bé, đến nỗi chiếc giày của cô bé bị lõm vào một mảng. Anh ta vội vàng nói: "Xin lỗi em gái nhỏ, chân em có bị thương không?" Cô bé lắc đầu: "Không sao đâu ạ, em không thấy đau." Người đàn ông kỳ lạ nói: "Anh giẫm mạnh như vậy mà sao em không đau?" Trong ánh mắt kinh ngạc của anh ta, cô bé rất bình tĩnh kéo ống quần lên, chỉ vào chân mình và nói: "Đây là chân giả của em, làm sao mà đau được ạ?" Cô bé tiếp tục nói: "Dù em mất đi một cái chân, nhưng em vẫn còn sống, đó chính là điều may mắn trong cái rủi của em. Chúng ta phải mỉm cười đối diện với mọi người, trân trọng mỗi ngày. Em muốn cho mọi người thấy chân của em, không phải để họ nghĩ em không làm được gì, mà để họ biết họ may mắn đến nhường nào." Lời nói của cô bé rất triết lý, khiến người đàn ông vô cùng kinh ngạc. Anh ta hổ thẹn suy nghĩ một chút, đột nhiên cảm thấy mất đi cánh tay không hề thua kém người khác, anh ta lấy hết dũng khí, ánh nắng chiếu rọi lên người anh ta, anh ta cứ thế bước về phía trước. Một người dù có thể bị thương về thể xác, nhưng tinh thần không được phép bị tổn thương. Một người học Phật có thể học được sự kiên cường trong khó khăn, cuộc đời vô thường, thế sự vô thường, vô thường chính là hy vọng. Khi bạn đã nếm trải đủ những nỗi đau của vô thường, bạn mới càng trân trọng cuộc đời, càng hiểu được sự thăng tiến của cảnh giới. Nói một cách đơn giản, một người chỉ khi nếm trải khổ đau, mới biết cách thoát khỏi khổ đau. (Tiếng vỗ tay)
+
+Tài sản duy nhất của đời người chính là thân thể và tuệ mạng của bạn. Không trân trọng tài sản duy nhất trên đời này chính là lãng phí sinh mệnh, lãng phí tuệ mạng. Tuệ mạng và thân thể là tài sản duy nhất để bạn tồn tại. Nếu bạn làm tổn hại đến thân thể, làm tổn thương cảm xúc và tâm hồn mình, thì bạn chính là đang tự làm hại chính mình. Mong mọi người hãy chăm chỉ học Phật, thực sự khai ngộ, và thấu hiểu cuộc đời. (Tiếng vỗ tay)
+
+
+
+
+Người học Phật phải tin vào sự tồn tại của chư Phật, tu tâm phải tu đến bất tử bất sinh, đoạn trừ phiền não. Chỉ khi tu được đến mức thoát khỏi luân hồi, bạn đã không còn bận tâm đến bất cứ điều gì trên thế gian này nữa, mọi lời bạn nói ra đều là trí tuệ. Bởi vì không dính mắc bất kỳ danh lợi nào của thế gian, làm sao lời nói của bạn lại không có trí tuệ được? Giống như Bồ Tát vậy, tu tâm chính là rèn luyện tâm trí thuần khiết của mình giữa hồng trần. Con người thường phải trải qua vô số khổ nạn, thăng trầm mới bắt đầu tu tâm, mới có thể đắc ngộ từ đó. Đắc ngộ mới biết mình còn thiếu sót. Người biết ngộ mà không hành ngộ được xem là không tu. Chúng ta phải đắc ngộ để khai ngộ, biết ngộ, hiểu khai ngộ, chúng ta mới có định. Khi một người hiểu rõ mọi điều, khai ngộ mọi điều, nhất định sẽ có định lực, vì mọi thứ trên thế gian này đối với họ không còn sức hấp dẫn nào; có định rồi nhất định sẽ có trí tuệ, đây chính là Giới Định Huệ mà Phật thường giảng, hy vọng mọi người hãy hiểu rõ. Khi một người có thể giữ tâm an định trước mọi thứ trên thế gian, không theo đuổi không cầu mong, thường xuyên tự nhủ trong lòng "Tôi đủ rồi, tôi có thể rồi, tôi mãn nguyện rồi", thì bạn chính là người có trí tuệ. (Tiếng vỗ tay)
+
+
+
+
+Có một công nhân đang làm việc ngoài trời thì đột nhiên bị điện giật ngã xuống, tim ngừng đập, hô hấp nhân tạo không hiệu quả. May mắn thay, có một vị bác sĩ ở gần đó, chỉ có một con dao gọt hoa quả. Trong tình thế cấp bách, vị bác sĩ không kịp khử trùng đã dùng con dao này rạch lồng ngực anh ta, dùng tay bẻ gãy vài xương sườn, rồi dùng ngón tay đưa vào khoang ngực để kích thích tim đập trở lại. Người công nhân đã sống lại. Tất cả mọi người, đặc biệt là giới y học, đều kinh ngạc và nghi ngờ nói: "Người này không hiểu rõ y học, anh ta làm như vậy, bệnh nhân sẽ bị nhiễm trùng." Thực ra, điều vĩ đại của vị bác sĩ này chính là sự lựa chọn của anh ta, bởi vì bệnh nhân sống lại thì mới có khả năng bị nhiễm trùng; nếu không còn sinh mệnh nữa, dù có bị nhiễm trùng hay không, điều đó cũng không còn tồn tại trong sinh mệnh. Vì vậy, một người sống mà phải chịu chút khổ, chịu chút mệt, chịu chút ấm ức, chịu sự ô nhiễm của thế gian, đó là vì sinh mệnh của bạn vẫn còn tồn tại; nếu tinh thần bạn suy sụp, thể xác bạn chết đi, bạn đã không còn vấn đề ô nhiễm ở thế gian nữa rồi. Người học Phật từ câu chuyện này nên hiểu rằng, trước hết phải cứu tuệ mạng của mình, mới có thể cứu sinh mệnh của mình; sự vĩ đại của tuệ mạng nằm ở chỗ biết được sự vô thường của sinh mệnh, sự vĩ đại của tuệ mạng nằm ở chỗ biết rằng những sự nhiễm trùng và đau khổ mình phải chịu đều là tạm thời, và việc sở hữu một sinh mệnh vĩnh cửu mới có thể chống lại mọi tổn hại do ô nhiễm thế gian gây ra cho mình. Đây mới là cuộc sống có trí tuệ. (Tiếng vỗ tay)
+
+
+
+
+Chúng ta sống trên đời ai mà không đau khổ? Chúng ta sống trên đời ai mà không có phiền não? Bởi vì chúng ta vẫn còn sống, dựa vào cái "sống" này để củng cố niềm tin học Phật của chúng ta. Bởi vì hôm nay chúng ta vẫn còn chịu khổ, nên mới cố gắng theo đuổi chân lý của cuộc đời và Phật pháp. Khi một người không thể chịu khổ, khi chỉ biết hưởng thụ, sẽ mất đi một loại lý trí vĩ đại. Phải hiểu rằng chịu khổ, chịu khổ sẽ tiêu nghiệp, tiêu nghiệp mới có thể được vãng sanh. Muốn niết bàn, đó chính là sự trong sạch và thuần khiết của cả thể xác và tinh thần, chúng ta mới có thể tinh tấn niết bàn, mới có thể thực sự trở về Tứ Thánh Đạo và Tây Phương Cực Lạc Thế Giới. (Tiếng vỗ tay)
+
+Hoa sen trên trời càng nhiều, bầu trời càng thêm tươi đẹp, giống như thế gian vậy, hoa cỏ ở thế gian càng nhiều, giống như một quốc gia vườn hoa. Mong mọi người hãy hiểu rằng, mỗi người hãy trồng một đóa sen thanh khiết ở trên trời, để mẹ Bồ Tát, Phật Đà, Tứ Thánh Đạo của A Di Đà Phật và hoa sen ở Tây Phương Cực Lạc Thế Giới ngày càng nở rộ hơn. (Tiếng vỗ tay)
+
+Tu tâm là gì? Tu tâm chính là đào sâu bản chất sâu thẳm nhất trong nội tâm mình và lau rửa nó thật sạch sẽ. Tu tâm chính là sửa chữa lại những lương tri lương năng đã bị hư hỏng để chúng trở lại với chính mình. Đây chính là căn bản trí mà Phật Đà đã giảng. Con người phải có căn bản trí của Bồ Tát thì mới có thể đoạn trừ phiền não, phá trừ vô minh. (Tiếng vỗ tay)
+
+Người học Phật học trí tuệ của Bồ Tát, không theo đuổi sự thông minh. Thông minh không đại diện cho việc có trí tuệ, nhưng người có trí tuệ nhất định sở hữu sự thông minh. Theo đuổi một loại trí tuệ Bồ Tát ở cảnh giới cao, sẽ giúp bạn tự do như cá gặp nước ở thế gian, cảnh giới có thể hưởng thụ mọi Phật duyên và tình duyên ở thế gian. (Tiếng vỗ tay)
+
+Minh Thái Tổ Chu Nguyên Chương hỏi các đại thần: "Ai là người vui vẻ nhất thiên hạ?" Các quần thần bàn luận sôi nổi, có người nói người công thành danh toại là vui vẻ nhất, có người nói người giàu nhất thiên hạ là vui vẻ nhất. Chu Nguyên Chương nghe xong lộ vẻ không vui. Có một đại thần tên là Vạn Cương, nói: "Hoàng thượng, người kính sợ pháp độ là vui vẻ nhất." Chu Nguyên Chương rất vui mừng. Kính sợ pháp độ là vui vẻ nhất, tức là người kính sợ luật pháp, không chịu làm những việc vi phạm pháp luật và kỷ cương sẽ không phải lo lắng thấp thỏm, tự nhiên sẽ vô cùng vui vẻ. Đây chính là câu vô dục tự nhiên tâm như thủy (không ham muốn thì tâm tự nhiên như nước) mà Phật pháp thường nói. Người vô dục nhất định biết đủ, người biết đủ nhất định sẽ hạnh phúc. Trong xã hội hiện đại phải giữ pháp luật, trong gia đình phải giữ quy tắc, khi học Phật phải giữ giới luật, trong quốc gia phải tuân thủ pháp luật, bạn sẽ có được niềm vui và pháp hỷ vô cùng, đây chính là đạo lý của cuộc đời. (Tiếng vỗ tay)
+
+
+
+
+
+
+
+Có một đội đào vàng đang đi trong sa mạc, vì ai cũng muốn đào được nhiều vàng nên mang theo rất nhiều túi và dụng cụ, bước chân nặng nề, vô cùng khổ sở. Chỉ có một người vui vẻ bước đi, những người khác hỏi anh ta: "Sao anh lại thoải mái thế?" Anh ta cười nói: "Vì tôi mang theo ít đồ nhất." Người khác hỏi: "Tại sao anh lại mang ít đồ?" Anh ta nói: "Các bạn đều có rất nhiều gánh nặng, tôi thì không, vì tôi không muốn đào quá nhiều, tôi chỉ muốn có một chút thôi." Hóa ra con người hạnh phúc thật đơn giản, chỉ cần đừng quá so đo tính toán là được.
+
+Người học Phật muốn sống an lạc, đừng để những lời mắng chửi, ưu sầu, phiền não và phỉ báng của người khác chất chứa trong lòng, bạn sẽ sống đơn giản hơn; đừng nghe những điều xấu, chỉ nghe những điều tốt, lòng bạn sẽ tràn đầy thiện lương và những điều tốt đẹp; nếu bạn ngày nào cũng nghe những điều phiền não và ưu sầu, lòng bạn sẽ chứa đầy ưu sầu và phiền não, đương nhiên bạn sẽ sống trong phiền não mỗi ngày. Người học Phật thực sự hiểu Phật pháp dựa vào cảnh giới, tức là không quá lưu luyến bất cứ điều gì trên thế gian, trong lòng không có vướng mắc, không thể không tha thứ cho người khác. Bởi vì nếu bạn không tha thứ cho người khác, tâm bạn sẽ không bao giờ an định.
+
+Có bao nhiêu người cả đời sống trong cảm xúc của người khác, người ta vui thì họ cũng vui, người ta buồn thì họ cũng đau lòng, cảm xúc của chính mình hoàn toàn bị người khác chi phối. Có một người mẹ, ngày nghỉ ở nhà nấu ăn, cả ngày bà rất vui vẻ. Khi con về, người mẹ nói: "Học tốt không con? Đưa mẹ xem bảng điểm." Vừa nhìn thấy, bà lập tức nhảy dựng lên, la mắng, đập bát, đập nồi, cảm xúc hoàn toàn bị đứa con chi phối. Con người sống trong cảm xúc của người khác. Chúng ta phải cho đi yêu thương, phải biết cách kiểm soát cảm xúc của mình, có thể tiêu trừ phiền não tức là có trí tuệ. Ngôi nhà chúng ta sở hữu, 70% là trống rỗng; tiền chúng ta kiếm được cả đời, 70% là để lại cho người khác. Hôm nay kiếm được càng nhiều, chỉ chứng tỏ sau này di sản càng nhiều. Tham muốn của bạn càng nhiều, thất vọng càng nhiều. Phải quan sát nhân duyên thế gian một cách khéo léo, bạn sẽ tùy duyên; chỉ khi vứt bỏ trí tuệ giả tạo của thế gian, mới có thể hiển lộ trí tuệ chân thật của Phật tính. (Tiếng vỗ tay)
