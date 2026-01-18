@@ -1,0 +1,21 @@
+---
+title: "Tại sao đường ruột dạ dày không tốt phải niệm Vãnh Sanh Chú ?"
+datePublished: Sun Jan 18 2026 21:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmkk97rd7000102jvgvs9baej
+slug: tai-sao-duong-ruot-da-day-khong-tot-phai-niem-vanh-sanh-chu-162
+canonical: http://timkhaithi.pmtl.site/2025/07/tai-sao-uong-ruot-da-day-khong-tot-phai.html
+tags: benh-tat
+
+---
+
+Thính giả nam: Thưa sư phụ, Thầy khai thị cho một đồng tu bị dạ dày không tốt, bảo anh ta niệm Vãng Sanh Chú tiêu trừ nghiệp chướng trong dạ dày , đây có phải là trường hợp cá biệt không? Hay chỗ nào không tốt thì niệm Chú Vãng Sanh ở đó?
+
+Đài trưởng đáp: Mặc dù đây là một trường hợp cá nhân, nhưng có những điều mà mọi người có thể chấp nhận. Hãy nhớ rằng, bất kỳ vấn đề dạ dày nào cũng là vấn đề liên quan đến ăn uống. Nhiều người bị dạ dày không tốt vì ăn hải sản tươi sống quá nhiều nên phải tụng Chú Vãng Sanh.
+
+(Thầy nói phải trì Chú Vãng Sanh, là cầu xin Quán Thế Âm Bồ Tát siêu độ tiểu vong linh trong dạ dày hay là cầu xin chung chung?)
+
+Cầu xin chung chung là được, vì chỉ đơn thuần trì Chú Vãng Sanh tiêu trừ không hết , chỉ có cách là niệm Ngôi Nhà Nhỏ mới có thể tiêu trừ.
+
+Huyền nghệ Q&A 20170101A
+
+Wenda20170101A 15:01
