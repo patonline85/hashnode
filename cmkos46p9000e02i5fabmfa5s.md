@@ -1,0 +1,13 @@
+---
+title: "87. Xem nội dung khiêu dâm trên mạng dẫn đến vong linh ám, làm tăng thêm hành vi tà dâm"
+datePublished: Thu Jan 22 2026 01:34:29 GMT+0000 (Coordinated Universal Time)
+cuid: cmkos46p9000e02i5fabmfa5s
+slug: 87-xem-noi-dung-khieu-dam-tren-mang-dan-den-vong-linh-am-lam-tang-them-hanh-vi-ta-dam-991
+canonical: http://timkhaithi.pmtl.site/2025/06/87-xem-noi-dung-khieu-dam-tren-mang-dan.html
+tags: ta-dam
+
+---
+
+87. Xem nội dung khiêu dâm trên mạng dẫn đến vong linh ám, làm tăng thêm hành vi tà dâm
+
+Hỏi: Ngày 05-04-19, linh hồn đệ tử được đưa đến điện Quan Đế.Hộ Pháp Thiên Thần:�"Nay đưa đồng tử lên thiên giới để thông báo: Vào ngày 26/03/2019 trong chương trình 'Huyền Nghệ Tổng Thuật' (xem đồ đằng), lúc 14:00, qua quan sát của Hộ Pháp Thiên Thần, ác linh trên thân người  là chúng sinh tà đạo từ địa ngục, trốn thoát khỏi âm phủ trái luật âm. Nguyên nhân là do Phật tử xem nội dung khiêu dâm trên mạng nên rước họa vào thân. Con có biết, tà linh này bám vào người dương, ban đêm đọc trộm tà niệm dâm dục trong tâm trí Phật tử rồi biến hiện cảnh tượng tà dâm khiến Phật tử phạm nhiều hành vi tà ác, làm tập khí dâm dục càng thêm nặng? Phật tử khắp thiên hạ nên lấy đây làm bài học cảnh tỉnh, những thứ phi lễ đạo không thể xem!"Cảm ân Bồ Tát Quán Thế Âm, cảm ân Sư phụ.�Đệ tử Malaysia, 05-04-19.Đáp:�"Tất cả đều là chuyện có thật, các con đừng tùy tiện! Tà dâm thực sự rất đáng sợ. Có gì đáng xem đâu? Chó ngoài đường có mặc quần áo không? Dê có mặc quần áo không? Thấy dê không mặc quần áo, lòng các con có động tâm không?"�—— Lư Đài Trưởng Khai thị giải đáp thắc mắc trong thư (303)�13-04-201987. 网络看情色资讯引灵性上身后加重淫欲邪行问：05-04-19，魂体被带到关帝殿。护法天神：“现提童子上天界告知，于2019年3月26日玄艺综述（看图腾），时长14:00，经护法天神观察，汝身上恶灵乃地狱邪道众生，不按阴律私自逃脱冥界，也是佛子在网络观看情色资讯而引祸上身。你可知此邪灵依附在阳人身上，于夜里读取佛子脑中邪淫欲念再幻化出邪淫景象让佛子犯诸多淫欲邪行，导致佛子邪淫习气加重。天下佛子可要以此为戒，非礼之事是看不得。”感恩观世音菩萨，感恩师父。弟子 马来西亚 05-04-19答：所有的都是真人真事，不要乱来啊，孩子们！邪淫真的很可怕。有什么好看的？马路上的狗穿衣服吗？羊穿衣服吗？你看到羊不穿衣服会动心吗？——卢台长开示解答来信疑惑（三百零三）2019-04-13
