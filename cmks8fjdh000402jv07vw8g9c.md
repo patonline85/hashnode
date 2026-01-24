@@ -1,0 +1,30 @@
+---
+title: "Khi bạn thả phóng sinh thì có thể mất 8 đến 10 năm mới có thể nhận được sự Phúc báo hồi đáp lại."
+datePublished: Sat Jan 24 2026 11:34:31 GMT+0000 (Coordinated Universal Time)
+cuid: cmks8fjdh000402jv07vw8g9c
+slug: khi-ban-tha-phong-sinh-thi-co-the-mat-8-den-10-nam-moi-co-the-nhan-duoc-su-phuc-bao-hoi-dap-lai-393
+canonical: http://timkhaithi.pmtl.site/2025/06/khi-ban-tha-phong-sinh-thi-co-mat-8-en.html
+tags: phong-sinh
+
+---
+
+Khi đó, Bạn sẽ đột nhiên trở nên giàu có, hoặc sức khỏe đột ngột hồi phục, hoặc bản thân bạn thay đổi hoàn toàn. 
+
+
+
+
+Đây chính là kết quả của việc bạn thả phóng sinh ở hiện tại.
+
+
+
+
+— Wenda 20190426 41:01 ( khai thị)
+
+-----------------------------
+
+
+
+
+放 生可能10年8年之后才会转回来。你会突然之间很有钱，或者突然之间身体好了，或者突然之间人整个变掉了，这个就是你现在放生的结果。
+
+Wenda  20190426  41：01 (开 示)
