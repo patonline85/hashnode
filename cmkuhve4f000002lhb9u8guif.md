@@ -1,0 +1,34 @@
+---
+title: "Khi phóng sinh có thể khấn ba điều nguyện vọng không?"
+datePublished: Mon Jan 26 2026 01:34:20 GMT+0000 (Coordinated Universal Time)
+cuid: cmkuhve4f000002lhb9u8guif
+slug: khi-phong-sinh-co-the-khan-ba-dieu-nguyen-vong-khong-69
+canonical: http://timkhaithi.pmtl.site/2025/06/khi-phong-sinh-co-khan-ba-ieu-nguyen.html
+tags: phong-sinh
+
+---
+
+wenda20131201A 48:28
+
+Khi phóng sinh có thể khấn ba điều nguyện vọng không?
+
+Nữ thính giả: Khi phóng sinh có thể khấn ba điều nguyện vọng, đúng không ạ?
+
+Đài Trưởng trả lời: Ba điều nguyện không được gộp nhiều mong muốn trong một điều nguyện. Ví dụ như: “Cầu xin Quán Thế Âm Bồ Tát phù hộ con mau khỏi cảm cúm; phù hộ con tôi thi đậu; phù hộ cha mẹ con mạnh khỏe” – như vậy là ba điều nguyện. Chứ không phải như kiểu: “Điều nguyện thứ nhất: cầu cho mười tám đời tổ tiên của con, cầu cho cả nhà con hạnh phúc khỏe mạnh, cầu cho gia đình con mọi việc hanh thông...” – con khấn như vậy thì hoàn toàn không có hiệu quả gì cả.
+(Nếu con phóng sinh mười con cá cho một người, rồi khấn ba điều nguyện thì sao...) Như vậy là quá nhiều! Con thấy như vậy có hợp lý không?
+(Chỉ nên khấn một điều nguyện thôi đúng không ạ?) Con thử nghĩ xem, giống như con mang 10 đồng mà muốn mời người ta ăn cả một bàn tiệc, mỗi người được bát cháo loãng – con có nỡ làm vậy không? Con niệm một tờ NNN cho từng đó người? Phóng sinh 10 con cá mà khấn nhiều điều nguyện như thế, con thấy có đáng không?
+(Con hiểu rồi, cảm ơn thầy.)
+
+—-----------------------------------
+
+Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.
+
+—-----------------------------------
+
+wenda20131201A  48:28  
+
+放生的时候可以许三个愿望吗
+
+女听众：放生的时候可以许三个愿望，对吗？
+
+台长答：三个愿望不能一个愿望里边包括很多愿望，比方说“请观世音菩萨保佑我最近伤风好；保佑我孩子能够考上；保佑我爸爸妈妈身体好”，好了，三个。不是说“第一个愿望：保佑我家里十八代祖宗、保佑我全家幸福健康，保佑我们全家怎么样……”你去许好了，一点效果都没有的（如果我为一个人放十条鱼，然后许三个愿望……）太多了！这好意思吗？（只能许一个是吗？）你就等于拿了十块钱要请人家吃一桌饭，每人喝碗稀粥，你好意思拿出来？你念一张小房子给这么多人？放十条鱼许这么多愿？你好意思的？（听懂了，感恩您）
