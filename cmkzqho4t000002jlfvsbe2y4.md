@@ -1,0 +1,24 @@
+---
+title: "Về kinh bài tập hàng ngày"
+datePublished: Thu Jan 29 2026 17:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cmkzqho4t000002jlfvsbe2y4
+slug: ve-kinh-bai-tap-hang-ngay-251
+canonical: http://timkhaithi.pmtl.site/2025/05/ve-kinh-bai-tap-hang-ngay.html
+tags: kinh-bai-tap
+
+---
+
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/tcc/1/20/1f539.png)
+ Về kinh bài tập hàng ngày.
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t13/1/16/1f308.png)
+Nếu làm tốt kinh bài tập mỗi ngày, có thể ứng phó với những kiếp nạn nhỏWenda20200927 44:14
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t72/1/16/1f538.png)
+Khán giả nam: Sư phụ, hôm qua thầy xem Đồ Đằng cho 1 người và nói kiếp nạn lớn của người này biến thành kiếp nạn nhỏ, kiếp nạn nhỏ của người này có thể phối hợp bao nhiêu tờ Ngôi Nhà Nhỏ và phóng sinh bao nhiêu con cá?
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/tf3/1/16/1f539.png)
+Đài trưởng trả lời: kiếp nạn nhỏ thì tùy thôi, kiếp nạn nhỏ sẽ không lợi hại lắm đâu. Nếu con đọc kinh bài tập mỗi ngày, con có thể ứng phó với kiếp nạn nhỏ, nếu con đọc tốt kinh bài tập, thì có thể ứng phó với nó.
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t13/1/16/1f308.png)
+Cái nào tập trung năng lượng hơn, khi tập trung đọc hết kinh bài tập 1 lần với đọc rải rác?Wenda20170908 36:45
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t72/1/16/1f538.png)
+Khán giả nam: Thưa Thầy, khi đọc kinh trong kinh bài tập, có người dậy sớm và học xong hết một lượt trước khi đi làm; một số người đọc kinh bài tập xen kẽ mỗi lúc rảnh rỗi. Xin hỏi Sư Phụ, liệu việc hoàn thành kinh bài tập một lúc mà không bị gián đoạn có thể thu thập được nhiều năng lượng và nhận được sự gia trì lớn hơn so với việc đọc kinh bài tập rải rác đúng không?
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/tf3/1/16/1f539.png)
+Đài trưởng đáp: Để thầy kiểm tra con trước, con nghĩ tập trung năng lượng hay phân tán năng lượng thì tốt hơn?(Tập trung năng lượng lợi hại)Được rồi, còn muốn hỏi nữa à? Tại sao lại có nhiều năng lượng như vậy ở trong Pháp hội? Bởi vì có rất nhiều Bồ Tát đến nên năng lượng rất lớn. Nếu con tụng kinh một mình ở nhà, thì con có được bao nhiêu năng lượng?(Dạ đúng)
