@@ -1,0 +1,24 @@
+---
+title: "🍀Làm thế nào để tránh được thảm họa thiên nhiên trong thời Mạt pháp🪷"
+datePublished: Fri Jan 30 2026 23:34:24 GMT+0000 (Coordinated Universal Time)
+cuid: cml1iseyh000202kv9gala2mo
+slug: lam-the-nao-de-tranh-duoc-tham-hoa-thien-nhien-trong-thoi-mat-phap-628
+canonical: http://timkhaithi.pmtl.site/2025/05/lam-nao-e-tranh-uoc-tham-hoa-thien.html
+tags: mat-phap
+
+---
+
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t4e/1/16/1fab7.png)
+Wenda20200816 17:55 
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t4e/1/16/1fab7.png)
+
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t87/1/16/1f340.png)
+Làm thế nào để tránh được thảm họa thiên nhiên trong thời Mạt pháp
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t4e/1/16/1fab7.png)
+
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/tfb/1/16/1f64f_1f3fb.png)
+Thính giả nữ: Gần đây trong chương trình, Sư phụ thường xuyên nhắc tới việc khai thị Giải Kết Chú vượt qua kiếp nạn. Xin hỏi Sư phụ, có phải thiên thời hiện tại đang trong giai đoạn bùng nổ oán kết hay không ạ?
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/t4e/1/16/1fab7.png)
+Đài trưởng: Thiên thời hiện tại trong thời Mạt pháp giới Phật pháp gọi là thời kỳ Mạt pháp, thời kỳ Mạt pháp trên cơ bản chính là rất nhiều thiên tai đều sẽ đến, cho nên con người trải qua tương đối vất vả một chút. Vì vậy, mọi người càng phải thỉnh cầu Bồ Tát phù hộ, thỉnh cầu Bồ Tát phù hộ nhiều hơn, sau đó chính mình phải vượt qua khảo nghiệm, phải chịu khổ, con mới có thể tránh được rất nhiều thiên tai.
+![Image](https://static.xx.fbcdn.net/images/emoji.php/v9/tfb/1/16/1f64f_1f3fb.png)
+Thính giả nữ: Con hiểu rồi ạ.
