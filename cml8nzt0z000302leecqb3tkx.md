@@ -1,0 +1,34 @@
+---
+title: "Vấn đề về việc niệm Lễ Phật Đại Sám Hối Văn hiệu quả"
+datePublished: Wed Feb 04 2026 23:34:30 GMT+0000 (Coordinated Universal Time)
+cuid: cml8nzt0z000302leecqb3tkx
+slug: van-de-ve-viec-niem-le-phat-dai-sam-hoi-van-hieu-qua-126
+canonical: http://timkhaithi.pmtl.site/2025/04/van-e-ve-viec-niem-le-phat-ai-sam-hoi.html
+tags: lpdshv
+
+---
+
+&lt; Phật học hỏi đáp Pháp môn Tâm linh 22&gt;
+
+2010-02-02
+
+
+
+
+Hỏi 22: Xin hỏi Lư Đài Trưởng, làm công đức bằng cách niệm lễ Phật đại sám hối văn và tiêu trừ nghiệt chướng bằng Lễ Phật Đại Sám Hối Văn có hiệu quả giống nhau không?
+
+Đáp 22:
+
+Kinh văn cũng giống như là một liều thuốc tốt mà chư Phật và Bồ Tát tặng cho chúng ta.
+
+Đại phương hướng của Lễ Phật Đại Sám Hối Văn là để giúp ta “Định” lại. Công hiệu của nó là tiêu trừ nghiệt chướng, hơn nữa trước khi niệm kinh khấn cầu còn cần phải xem người niệm.
+
+Nếu như muốn niệm Lễ Phật Đại Sám Hối Văn để tiêu trừ nghiệt chướng, thì trước khi niệm khấn cầu: Xin Đại Từ Đại Bi Quán Thế Âm Bồ Tát phù hộ cho con là xxx, giúp con sám hối và tiêu trừ nghiệt chướng.
+
+Nếu như niệm lễ Phật đại sám hối văn để tăng thêm công đức, thì trước khi niệm khấn cầu: “ Xin Đại Từ Đại Bi Quán Thế Âm Bồ Tát phù hộ cho con là xxx, giúp con gia tăng công đức. “
+
+Nếu như trên người quý vị nghiệt chướng ít, không cần tiêu trừ nghiệt chướng, thì khi niệm lễ Phật đại sám hối văn sẽ biến thành công đức. Thực ra thì câu “tiêu trừ nghiệt chướng” cũng là đồng nghĩa với gia tăng thêm công đức cho bản thân.
+
+Nếu như từng đám từng đám khí đen của nghiệt chướng trên người đã được tiêu trừ đi nhiều rồi, bản thân sẽ ngày càng sạch sẽ, sau đó tiếp tục niệm chú đại bi, tâm kinh, Lễ Phật Đại Sám Hối Văn v..vv các loại kinh văn đều có thể dần dần tích lũy trên người của chính quý vị.
+
+Tại sao có một số người niệm kinh không hiệu quả, niệm không linh nghiệm, bởi vì người niệm kinh có nghiệt chướng quá nhiều quá nhiều rồi. Vì vậy dùng Lễ Phật Đại Sám Hối Văn để tiêu trừ nghiệt chướng là điều vô cùng quan trọng. Nếu như niệm bị kích hoạt rồi, thì phải đốt tặng Ngôi Nhà Nhỏ.
