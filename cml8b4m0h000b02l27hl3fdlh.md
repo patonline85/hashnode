@@ -1,0 +1,69 @@
+---
+title: "Không được dùng tên của chư Bồ Tát đặt tên WeChat"
+datePublished: Wed Feb 04 2026 17:34:19 GMT+0000 (Coordinated Universal Time)
+cuid: cml8b4m0h000b02l27hl3fdlh
+slug: khong-duoc-dung-ten-cua-chu-bo-tat-dat-ten-wechat-923
+canonical: http://timkhaithi.pmtl.site/2025/04/khong-uoc-dung-ten-cua-chu-bo-tat-at.html
+tags: hoang-phap
+
+---
+
+Shuohua20181109 06:48 
+
+
+
+
+Người nghe nữ: Xin hỏi, một số chữ trong bài “Lễ Phật Đại Sám Hối Văn” có thể dùng làm tên WeChat không? Ví dụ như “Âm Thanh Hải”, “Diệu Hoa Mạn”, “Diệu Ngôn Từ”, “Diệu Cao Tụ”, “Giai Tùy Hỷ”... Nếu không phải tên cá nhân mà là tên của ấn phẩm công chúng thì có được không?
+
+
+
+
+“Lư Đài Trưởng” đáp:
+
+Không được dùng tên của chư Bồ Tát. Chỉ có thể dùng những từ thông dụng, còn những danh xưng không thông dụng thì không được dùng.
+
+
+
+
+( Vậy không thể tùy tiện dùng tên Bồ Tát làm tên WeChat?)
+
+
+
+
+Không được dùng. Ví dụ như phần cuối cùng thì con có thể dùng, nhưng những danh hiệu Bồ Tát ở phần đầu khi tụng thì không được dùng. Một khi dùng rồi, thì thuộc phạm vi mà thần hộ pháp sẽ quản giáo  (Dạ, con hiểu rồi.)
+
+Ví dụ như “Đương Từ Niệm Ngã”, thì con có thể lấy “Từ Niệm”; những từ như “Tăng Vật”, “Tùy Hỷ” thì đều dùng được. Nhưng tên Bồ Tát ở phần đầu thì tuyệt đối không được dùng, hiểu chưa?
+
+
+
+
+(Ngoài danh từ, thì những từ mang ý nghĩa tốt đẹp thì có thể dùng, đúng không ạ?)
+
+
+
+
+Đúng rồi, như là “Thiện Căn”, “Bồ Đề”...
+
+
+
+
+(Dạ vâng.)
+
+
+
+
+不能将菩萨的名字用作微信名
+
+Shuohua20181109 06:48 
+
+
+
+
+女听众：请问，有一些礼佛大忏悔文里面的词语能否作为微信的名字？比如“音声海”“妙华鬘”“妙言辞”“妙高聚”“皆随喜”这些，如果不是个人的名字，是公众刊物可以吗？
+
+
+
+
+“卢台长”答：你不能用菩萨的名字的，你只能用一些比较流通的字，不流通的名字不能用的（菩萨名字不能随意作为微信名字？）不能用。比方说最后一部分你可以用，前面念的菩萨的名字你都不能用的。一用的话，这是属于护法神要管教的（明白了）比方说，“当慈念我”，你就用“慈念”，“僧物”“随喜”这种都可以。前面菩萨名字不能讲，明白了吗？（除了名词，其他词就摘一些寓意好
+
+的，对吧？）对啊，“善根”“菩提”……（好的）
