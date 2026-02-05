@@ -1,0 +1,41 @@
+---
+title: "Về vấn đề “nghề nghiệp” hòa thượng"
+datePublished: Thu Feb 05 2026 17:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cml9qkmje000q02ju9tqq8yu3
+slug: ve-van-de-nghe-nghiep-hoa-thuong-960
+canonical: http://timkhaithi.pmtl.site/2025/04/ve-van-e-nghe-nghiep-hoa-thuong.html
+tags: hoa-thuong
+
+---
+
+wenda20140713B 30:08
+
+ Về vấn đề “nghề nghiệp” hòa thượng
+
+Thính giả nam hỏi: Thưa Sư phụ, hiện nay ở Trung Quốc có một số người làm “nghề nghiệp hòa thượng”. Vậy việc này có phải cũng là một hiện tượng của thời kỳ mạt pháp không ạ?
+
+Đài Trưởng đáp: Haha! Vấn đề này thầy không tiện bình luận, nhưng người sáng suốt thì nhìn vào cũng thấy rõ. Cái gọi là “nghề nghiệp hòa thượng” là sao? Hòa thượng thì phải là người tu hành chân chính, là người buông bỏ tất cả để tu. Nếu chỉ coi làm hòa thượng như một nghề để kiếm sống, thì người đó có thật sự đang tu không? (Dạ đúng, đúng vậy.) Nó đâu còn là một công việc thông thường nữa! (Tức là người đó chỉ coi việc tu hành như một công việc hàng ngày.) Như vậy sao được chứ?! Con nghĩ như vậy có hợp không? (Dạ, không hợp.)
+
+(Vậy nếu họ ở trong chùa mà vẫn tu hành, thì có gì khác với tu tại gia không ạ?) Có khi còn không bằng người tu tại gia nữa ấy chứ! Bởi vì làm “hòa thượng nghề nghiệp” thì họ có thể đặt nặng chuyện tiền bạc – mà đã gọi là “nghề nghiệp” thì tức là công việc rồi còn gì! (Dạ đúng.) Ví dụ như họ giúp người khác tụng kinh siêu độ, tụng đến một nửa mà thấy đã 5 giờ rồi thì họ dừng, vì… hết giờ làm việc rồi. Nếu con trả thiếu một đồng, họ có thể nổi nóng với con ngay – như vậy thì còn đâu là lòng từ bi nữa? (Dạ đúng, đúng ạ.)
+
+Chúng ta không nên nói người khác xấu, nhưng thầy chỉ muốn nói rằng: cái gọi là “nghề nghiệp hòa thượng” thật sự là không phù hợp. (Dạ, vậy công đức họ tạo ra cũng sẽ không viên mãn đúng không ạ?) Con nghĩ sao? (Dạ, chắc chắn là không rồi, haha…)
+
+----------------------------------
+
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfwOPvk4HMYDmCPNA3wAz60ZvH75QLkEVrpnb8gL1E_8BEb-70_SOTzmCa1MlwIfLTumwJ8020UM2uw7ne9Pp4O5RGYEieypGHRu7Nm25_XzO7w7ibkjQG1E-52hr4GnCGkolagYQ?key=dwhMnpu0Y4GcdDaTMxbmlg)
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc7BdVt338MzhJJ36Qzki7SDi-Y_9YVTuUSVqvGhWNUCWTRHhhwyNRdXbnyEw8wEdfTrKHhucDeQn7kMsupXLml2Y3CnyzaeJU2RJoLRCpDDXKt4kZnNx1HTURCGpmbW75BM6kybw?key=dwhMnpu0Y4GcdDaTMxbmlg)
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcuC9S-5bRaXGUc1gK_MJFlb3k5T9Iq6ZVM-Dqc6YkC2vTXawQ5Yq7lcUCw37uICzLyWNePU-IhuXBoIpyK9_LB0GAyHpFflLgE0RMy0bg4eqrzwgTTG8SwpgpLmn4_YPvMgHaS?key=dwhMnpu0Y4GcdDaTMxbmlg)
+ Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.
+
+----------------------------------
+
+wenda20140713B  30:08   
+
+关于“职业”和尚的问题
+
+男听众：台长，现在国内不是有些职业和尚吗？像这个是不是也属于末法时期的那种产物啊？
+
+台长答：呵呵！这个我就不便评论了，反正大家明眼人都看得见。什么叫“职业”和尚啊？和尚就是和尚，和尚就是要修的，和尚就是要抛开一切的，如果纯粹把它作为一种职业的话，那这个和尚修得好吗？（对对）又不是一种工作咯！（这个职业就是把它当成工作一样）那怎么可以啊？！你说可以吗？（那像这种情况可能他在庙里的时候也在修行，跟居家修行有什么区别？）说不定还不如在家里修得好呢，因为“职业”和尚的话他可能会为钱，“职业”嘛就是一个工作啊（对对）帮人家念经超度好了，超度到一半一看五点钟到了，下班了，他不念了，呵呵……你少给他一分钱他跟你吵起来了，真的，哪有慈悲啊？对不对啊？（对对对）我们不能说人家不好，我只是说这个“职业”和尚实际上这个不合适（嗯，那么这样做功德也不会圆满了？）你说呢？（应该不会，呵呵）
