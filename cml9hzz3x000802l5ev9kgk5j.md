@@ -1,0 +1,21 @@
+---
+title: "Sư Phụ nói cho mọi người biết rằng, nếu trong tâm mọi người có chánh niệm thì Nhân Gian này chính là Từ Bi Tịnh Thổ"
+datePublished: Thu Feb 05 2026 13:34:26 GMT+0000 (Coordinated Universal Time)
+cuid: cml9hzz3x000802l5ev9kgk5j
+slug: su-phu-noi-cho-moi-nguoi-biet-rang-neu-trong-tam-moi-nguoi-co-chanh-niem-thi-nhan-gian-nay-chinh-la-tu-bi-tinh-tho-740
+canonical: http://timkhaithi.pmtl.site/2025/04/su-phu-noi-cho-moi-nguoi-biet-rang-neu.html
+tags: btpp
+
+---
+
+Những người sẵn sàng giúp đỡ người khác, không bao giờ vì mình mà ngày ngày cứ giúp đỡ người khác thì ai cũng quý mến họ ai cũng sẵn lòng muốn được gặp họ. Những người này họ cứ không ngừng nghỉ giúp đỡ hết cái này đến cái kia cho nên mọi người ai cũng thích họ, vậy thì những người này có phải là họ đang sống trong mảnh Tịnh Thổ không ?
+
+   Nếu mọi người luôn nghĩ về một điều gì đó với Chánh niệm, nghĩ về hướng tốt thì mọi người sẽ vui vẻ thì Tịnh độ là ở trong tâm mọi người.
+
+   Tất cả các pháp đều không thể tách rời khỏi tự tánh.
+
+   Tất cả mọi thứ trên đời này đều không rời khỏi tự tánh, những điều không vui đều sẽ được thay đổi. Thầy kể cho mọi người nghe, có một người làm rất nhiều việc thiện nhưng kết quả đứa con của ông ấy lại bị qua đời, rất nhiều người đều nói rằng: "Thật là bất công, ông ấy đã làm nhiều việc tốt như vậy. Ông trời sao không có mắt".
+
+   Cuối cùng sau khi đứa con bị khuyết tật của ông ấy qua đời, ông ấy lại sinh ra được mấy đứa thông minh lanh lợi, đứa con bị khuyết tật lúc trước của ông ấy thực ra là đứa con đến đòi nợ nhưng vì do ông ấy đã làm việc thiện nên đã sớm ngày trả hết được nợ.
+
+(Trích BTPP quyển 10 bài 15-Sự tự tin là nương nhờ vào Chánh niệm )
