@@ -1,0 +1,44 @@
+---
+title: "Cá đã chết không nên chôn"
+datePublished: Thu Feb 05 2026 01:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cml8sa27v000c02l915rvgnea
+slug: ca-da-chet-khong-nen-chon-908
+canonical: http://timkhaithi.pmtl.site/2025/04/ca-chet-khong-nen-chon.html
+tags: phong-sinh
+
+---
+
+Wenda20130726 29:53 
+
+
+
+
+Nữ thính giả: Lần trước chúng con đi phóng sinh, thấy một con cá chết, con đã đào một cái hố để chôn nó. Làm vậy có đúng không ạ?
+
+
+
+
+“Lư Đài Trưởng” trả lời: Thực ra cá chết thì nên chết trong nước.
+
+(Thính giả: Dạ không, là con đào hố dưới nước để chôn nó trong nước luôn đó ạ.)
+
+Con không cần phải chôn nó đâu, việc này cụ thể Thầy không tiện nói rõ trên sóng phát thanh.
+
+(Thính giả: Dạ, con hiểu rồi, cảm ơn Sư phụ.)
+
+
+
+
+死掉的鱼不要埋
+
+Wenda20130726 29:53 
+
+
+
+
+女听众：我们上次去放生看见一条鱼死了，我挖了个坑埋了，这样做对吗？
+
+
+
+
+“卢台长”答：鱼实际上死的地方应该在水里的（不是，就是在水里面挖了个坑埋里面了）你用不着埋的，具体的我不想在广播里讲（是，师父）
