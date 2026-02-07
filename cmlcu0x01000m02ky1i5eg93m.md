@@ -1,0 +1,56 @@
+---
+title: "Nếu bản thân không có vong linh thì nên niệm Ngôi nhà nhỏ như thế nào? Làm sao để phán đoán bản thân có vong linh hay không?"
+datePublished: Sat Feb 07 2026 21:34:24 GMT+0000 (Coordinated Universal Time)
+cuid: cmlcu0x01000m02ky1i5eg93m
+slug: neu-ban-than-khong-co-vong-linh-thi-nen-niem-ngoi-nha-nho-nhu-the-nao-lam-sao-de-phan-doan-ban-than-co-vong-linh-hay-khong-19
+canonical: http://timkhaithi.pmtl.site/2025/03/neu-ban-than-khong-co-vong-linh-thi-nen_27.html
+tags: nnn
+
+---
+
+Wenda20151009  35:43  
+
+Nam thính giả: Xin hỏi sư phụ, nếu niệm Kinh theo từng đợt, có phải chỉ thích hợp cho siêu độ vong linh không, nếu như không có vong linh mà chỉ để tiêu trừ nghiệp chướng, có cần niệm theo từng đợt phát nguyện nữa không? Xin sư phụ từ bi khai thị
+
+
+
+
+Đài Trưởng đáp: Nếu như không có vong linh, con không cần dồn hết sức niệm Ngôi nhà nhỏ. Ngôi nhà nhỏ là để tích luỹ trong trường hợp nào? Là khi không còn vong linh nữa, thì con cố gắng tiếp tục niệm để tích luỹ lại. Đợi đến khi vong linh đến, có lúc 7 tấm, 11 tấm, 13,17,21 tấm mà đốt. Nếu như thường xuyên đốt theo đợt 21 tấm, thì xem như con không có gì để tích luỹ rồi. Hiểu chưa?
+
+
+
+
+( Hiểu, sư phụ, làm sao để phán đoán bản thân có vong linh trên người hay không? Có phải là khi sức khoẻ không tốt sẽ…)
+
+
+
+
+Đầu tiên, nàm mơ cũng có thể biết không có vong linh. 
+
+Thứ 2, không đau đầu. 
+
+Thứ 3, đầu vừa đau mà lại hay nằm mơ thấy những chuyện không được như ý, vậy chắc chắn có. Còn có, trong nhà thường nghe thấy tiếng động, tiếng vang cũng không tốt. Gia đình thường xuyên cãi vã, nhất định là có vong linh. Không cần nói cũng biết. 
+
+Phải khấn xin với Quán Thế Âm Bồ Tát : Nếu như con có vong linh, xin Quán Thế Âm Bồ Tát chỉ điểm cho con biết.
+
+Con có thể nói từ “ám chỉ, chỉ điểm”, nhưng không được nói là “ để cho con nhìn thấy họ”, nếu không buổi tối nhất định sẽ lôi đến cho con xem, haha. Hiểu chưa?
+
+
+
+
+( Con hiểu rồi, cảm ơn sư phụ khai thị! Nếu như không có vong linh, ví dụ như trực tiếp đốt 7 tấm Ngôi nhà nhỏ và nói với Quán Thế Âm Bồ Tát:  “ Con xin đốt các tấm Ngôi nhà nhỏ này để tiêu trừ ghiệp chướng trên người con”. Như vậy có được không?)
+
+
+
+
+Làm vậy là đúng rồi
+
+
+
+
+( Dạ vâng, cảm ơn sư phụ khai thị)
+
+
+
+
+************
