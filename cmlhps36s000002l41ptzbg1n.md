@@ -1,0 +1,123 @@
+---
+title: "Cách hiểu về “Xung Thái Tuế,” “Hình Thái Tuế,” “Phá Thái Tuế,” “Hại Thái Tuế,” và “Trực Thái Tuế”"
+datePublished: Wed Feb 11 2026 07:34:25 GMT+0000 (Coordinated Universal Time)
+cuid: cmlhps36s000002l41ptzbg1n
+slug: cach-hieu-ve-xung-thai-tue-hinh-thai-tue-pha-thai-tue-hai-thai-tue-va-truc-thai-tue-149
+canonical: http://timkhaithi.pmtl.site/2025/03/cach-hieu-ve-xung-thai-tue-hinh-thai.html
+tags: pham-thai-tue
+
+---
+
+Shuohua20180105 01:03
+
+Thính giả nam: Hiện nay trên mạng lan truyền rằng các con giáp phạm Thái Tuế năm 2018 bao gồm: tuổi Tuất là bản mệnh năm trị Thái Tuế, tuổi Thìn xung Thái Tuế, tuổi Sửu hình Thái Tuế, tuổi Mùi phá Thái Tuế, và tuổi Dậu hại Thái Tuế. Các đồng tu và Phật hữu không hiểu rõ, xin Sư phụ khai thị về ý nghĩa của “xung Thái Tuế,” “hình Thái Tuế,” “phá Thái Tuế,” và “hại Thái Tuế” từ góc độ huyền học.
+
+
+
+
+Sư phụ:
+
+Hình Thái Tuế: Thực chất là bị Thái Tuế Bồ Tát để ý, giám sát kỹ càng.
+
+Xung Thái Tuế: Là phạm xung với Thái Tuế. Ví dụ như khi Sư phụ nhìn thấy một người mà cảm thấy không ưa, đó là "Xung Thái Tuế".
+
+Phá Thái Tuế: Là khi gặp ai đó, phải luôn đề phòng vì người đó thường gây hại cho mình.
+
+Hại Thái Tuế: Thực chất là phạm xung rất nghiêm trọng, xảy ra thường xuyên, thậm chí hàng tháng đều bị xung.
+
+Trực Thái Tuế:  có nghĩa là trong năm bản mệnh của bạn (tức là năm có con giáp trùng với tuổi của bạn), bạn sẽ gặp "Trực Thái Tuế", nên mọi việc cần đặc biệt cẩn trọng.
+
+
+
+
+Rất nhiều người khi phạm xung hay trị Thái Tuế thực chất là trong năm đó bị Thái Tuế Bồ Tát quản lý nghiêm ngặt hơn. Nhưng con người thường phóng túng, bị quản lý nghiêm thì cảm thấy xui xẻo. Quản lý nghiêm ngặt đến mức độ nào? Lấy ví dụ đơn giản, nếu thường xuyên làm chuyện vợ chồng thì con sẽ không ngừng gặp xui xẻo.
+
+
+
+
+Thính giả nam: Vậy nếu phạm Thái Tuế, xung Thái Tuế, hay hại Thái Tuế, chỉ cần học Phật tu tâm tốt thì sẽ cải thiện, có phải không?
+
+
+
+
+Sư phụ: Đúng vậy. Học Phật rồi, con thử nghĩ xem, Thái Tuế Bồ Tát nhìn thấy con là Bồ Tát thì có thích không? (Thích) Con là con của Bồ Tát, Thái Tuế Bồ Tát có làm khó con không? (Không) Ngược lại sẽ luôn giúp con.
+
+Con thử nghĩ xem, có mấy ngôi chùa thờ Thái Tuế? Pháp môn Tâm Linh của chúng ta là phù hợp với thời đại, chúng ta đều thờ Thái Tuế. Nhiều người cả đời không biết, đến năm phạm Thái Tuế thì gặp đủ mọi điều không hay, mà bản thân họ không biết cầu nguyện.
+
+Thính giả nam: Sau giao thừa, nghe nói năm 2018, Thái Tuế Bồ Tát là Tướng quân Giang Vũ?
+
+
+
+
+Sư phụ: Đúng, là Tướng quân Giang Vũ. Vì mỗi năm Thái Tuế sẽ thay đổi, rất nhiều Tướng quân mà chúng ta không nhớ hết được, gia đình cũng khó duy trì việc thay đổi hàng năm, nên tốt nhất là chỉ cần ghi “Thái Tuế Bồ Tát” và thờ cúng liên tục. “Thái Tuế Bồ Tát” là một chức vị, giống như hôm nay có người làm tổng thống, chức vụ tổng thống là một ghế ngồi, bất kể ai làm đều được gọi là “ngài tổng thống.” Người khác chỉ cần nói là Tổng thống thì sẽ không bị sai đúng không?
+
+
+
+
+Thính giả nam: Có thể hiểu Thái Tuế Bồ Tát là “quan hành pháp” của thiên giới trong năm đó, đúng không?
+
+
+
+
+Sư phụ: Đúng vậy. Thái Tuế Bồ Tát tuần tra cả trời đất, thiên giới và nhân gian. Ví dụ như câu chuyện “Tuyết tháng Sáu,” vụ án oan của Đậu Nga, là do Thái Tuế Bồ Tát phát hiện nên trời đổ tuyết giữa tháng Sáu, oan ức đến mức không gì sánh nổi.
+
+
+
+
+Thính giả nam: Thái Tuế Bồ Tát phát hiện ra, rồi thông báo lên thiên giới để trời đổ tuyết, đúng không?
+
+
+
+
+Sư phụ: Đúng vậy. Trời tháng Sáu mà có tuyết là điều bất thường, bởi thời tiết không phải là lúc có tuyết rơi. Điều đó cho thấy đây là oan khuất. Cuối cùng quan thanh liêm đã hiểu ra Đậu Nga bị oan.
+
+
+
+
+Thính giả nam: Con đã hiểu, cảm ơn Sư phụ đã giảng dạy về huyền học.
+
+
+
+
+Sư phụ: Huyền học rất thú vị. Sau này Thầy kể thêm vài câu chuyện huyền học, các con sẽ nghe rất thích.
+
+
+
+
+Thính giả nam: Sư phụ, khi nào Ngài sẽ giảng về huyền học?
+
+
+
+
+Sư phụ: Bình thường khi học Phật, Thầy cũng thường giảng cho các con. Con hỏi thì Thầy nói, không hỏi thì Thầy không nghĩ tới.
+
+
+
+
+Thính giả nam: Sư phụ, đối với những trường hợp như “hình Thái Tuế,” “hại Thái Tuế”… chỉ cần học Phật tu tâm thì một năm sẽ bình an, đúng không?
+
+
+
+
+Sư phụ: Đúng vậy. Con lễ bái Thái Tuế, Thái Tuế sẽ phù hộ con, còn gì mà phạm xung? Ví dụ, có người quản con rất nghiêm, không có thiện cảm với con, nhưng nếu con ngày nào cũng kính lễ họ, lâu dần họ sẽ có thiện cảm với con, đúng không?
+
+
+
+
+Thính giả nam: Con hiểu rồi. Như Sư phụ nói, Bồ Tát cũng rất coi trọng tình cảm, phải không ạ?
+
+
+
+
+Sư phụ: Tất nhiên. Bồ Tát và Phật đều trọng tình cảm. Nếu không, các Ngài sao lại từ bỏ niềm vui ở thiên giới để xuống nhân gian chịu khổ cứu độ chúng sinh? (Con hiểu rồi)
+
+
+
+
+Shuohua20180105   01:03  
+
+如何理解“冲太岁”“刑太岁”“破太岁”“害太岁”“值太岁”
+
+男听众：现在网上在传2018年犯太岁的生肖分别是：生肖狗本命年值太岁，生肖龙冲太岁，生肖牛刑太岁，生肖羊破太岁，生肖鸡害太岁。同修们、佛友们不理解，请师父开示一下“冲太岁”“刑太岁”“破太岁”“害太岁”从玄学角度到底是什么意思？�
+
+台长答：“刑太岁”实际上是被太岁菩萨看住。“冲太岁”就是犯冲，也就是说你在人间的生肖非常……举个简单例子，师父看见这个人特别讨厌，叫“冲太岁”。师父看见这个人特别关注他、怀疑他，叫“刑太岁”。“破太岁”，师父看见这个人就要防备他了，他经常来害我的。“害太岁”实际上就是犯冲犯得厉害，冲得厉害，整天在冲，每个月都冲。“值太岁”，因为每年的本命年都是值太岁，值太岁就是当值一样的，你就是要特别当心。很多人犯冲也好，值太岁也好，实际上就是你这一年当中被太岁菩萨管得特别严。但人是放纵的，一管得严就倒霉。管得严到什么程度，举个简单例子，就是夫妻之事经常做，你在本命年就会不停地倒霉（哦。那另外一个角度，如果他是犯太岁、冲太岁、害太岁……无论是哪种，只要他好好地学佛修心，就会更好，就是两极分化。是这样吗？）对，就是这样。学佛了之后……你想想看，太岁菩萨看见菩萨喜欢吗？（喜欢）那你是菩萨的孩子，太岁菩萨会弄你吗？不会弄你的，总是帮助你的。你看有几个庙里边供太岁的？我们心灵法门不是适应当代吗？我们都是供太岁的。很多人一辈子都不懂，每年到犯太岁的时候，犯得一塌糊涂，他自己都不知道求（是。过了新年除夕夜之后，说姜武大将军是2018年的太岁菩萨）对，姜武大将军。因为太岁每年是换一届的，因为很多大将军我们记不住，人家家里很多也不行，每年换也不行，索性你就写“太岁菩萨”，就一直供着了。“太岁菩萨”是一个位，比方说，你今天做总统，总统是一个座位，那么不管换谁，总是叫“总统先生”，人家叫“总统先生”总归不会错吧？（明白了。太岁菩萨可以说是今年天界的执法官，可以这样理解吗？）对，就是天界，寻天的。他寻天寻地，天上也寻，地上也寻。比方说过去“六月雪”，窦娥冤比雪还深，就是被太岁菩萨寻到了，所以六月下雪，冤啊！冤得不得了（太岁菩萨寻到了，他就通知天上，就下雪了。是这样吗？）对。其实像六月天上下雪就是不寻常，因为这个天时不是下雪的时候，那就是冤。后来那个清官大老爷就知道她是受冤了（明白了。谢谢师父给我们讲玄学方面的知识）玄学很有意思的，以后讲点玄学的故事，你们都听得开心得不得了，真的（师父，什 么时候讲玄学知识？）我平时在学佛当中也经常跟你们讲的，你问了我就讲了，你不问我想不起来（师父，针对这些“刑太岁”“害太岁”……只要好好学佛修心，一年就平平安安。是这样吗？）对。你拜太岁，太岁还保佑你呢，犯什么冲？举个简单例子，人家对你看得很严，对你没有好感，你天天拜他，时间长了人家会对你有好感吗？（明白了。正如师父说菩萨也是讲感情的，是这样吗？）那当然了，菩萨、佛都讲感情。不讲感情，菩萨还放弃天上的快乐跑到人间再来受苦受难救我们？（明白了
