@@ -1,0 +1,41 @@
+---
+title: "Nam Kinh Bồ Tát khai thị:"
+datePublished: Wed Feb 11 2026 21:34:19 GMT+0000 (Coordinated Universal Time)
+cuid: cmlijs7l9000002ju6hnxc0ku
+slug: nam-kinh-bo-tat-khai-thi-970
+canonical: http://timkhaithi.pmtl.site/2025/03/nam-kinh-bo-tat-khai-thi.html
+tags: khai-thi
+
+---
+
+✨Cho dù cả thế giới đều nói con tốt, Tâm con không sạch sẽ , cũng không thành Phật!
+
+
+
+
+✨ Cho dù có thêm bao nhiêu người công kích con , nhưng Tâm con ngay thẳng, lương tâm con tốt, có thể khai ngộ, vẫn thành Phật!
+
+
+
+
+✨✨✨ Wenda20170310
+
+
+
+
+☀️ 南京菩薩開示: 
+
+
+
+
+✨ 哪怕全世界的人都說你好, 你心裡不干淨也成不了佛!
+
+
+
+
+✨ 就算再多人攻擊你, 但是你心正,你良心好, 能開悟,照樣成佛!
+
+
+
+
+🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .
