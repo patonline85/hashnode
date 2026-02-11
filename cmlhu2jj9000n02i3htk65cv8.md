@@ -1,0 +1,25 @@
+---
+title: "Trung Quốc là một nền văn minh cổ đại có lịch sử 5.000 năm, được biết đến là một quốc gia của lễ nghi. Tinh thần cơ bản nhất của lễ nghi là tôn trọng người khác. Tôn trọng người khác là tôn trọng chính mình."
+datePublished: Wed Feb 11 2026 09:34:31 GMT+0000 (Coordinated Universal Time)
+cuid: cmlhu2jj9000n02i3htk65cv8
+slug: trung-quoc-la-mot-nen-van-minh-co-dai-co-lich-su-5000-nam-duoc-biet-den-la-mot-quoc-gia-cua-le-nghi-tinh-than-co-ban-nhat-cua-le-nghi-la-ton-trong-nguoi-khac-ton-trong-nguoi-khac-la-ton-trong-chinh-minh-230
+canonical: http://timkhaithi.pmtl.site/2025/03/trung-quoc-la-mot-nen-van-minh-co-ai-co.html
+tags: khai-thi
+
+---
+
+Trung Quốc là một nền văn minh cổ đại có lịch sử 5.000 năm, được biết đến là một quốc gia của lễ nghi. Tinh thần cơ bản nhất của lễ nghi là tôn trọng người khác. Tôn trọng người khác là tôn trọng chính mình. Tôn trọng không phải là một món quà mà là một phần thưởng. Đó là sự thể hiện chân thành lòng trắc ẩn của một người. Muốn học Phật pháp, trước tiên phải tôn trọng người khác. Tôn trọng sẽ tạo ra lòng tin và có thể biến kẻ thù thành bạn. Muốn học Phật pháp, phải bình đẳng thừa nhận thành tựu của người khác, khen ngợi người khác, tôn trọng nhân cách của người khác. Khi đó xã hội sẽ ổn định hơn, mọi người sẽ đoàn kết hơn, gia đình sẽ hòa thuận hơn. Tôn trọng mọi người, kính trọng người già và yêu thương người trẻ cũng là những đức tính rất quan trọng đối với chúng ta, những người theo đạo Phật.
+
+2014-12-07 Buổi hỏi đáp “Xuan Yi Zong Jian” của Thầy Lư tại Melbourne
+
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfbZoRfloEGI08R8U_rCBJdIG1pPMkivczZ62wiSVlMVpn6ijfvr2DkVNJTXR58LORDJ9YK375P5euAOYXvK9MPsCGg0I9L-Ypf3P-__RXFYQCR0Eh-vFzxzC8G8kcTzzgKOYFr?key=dwhMnpu0Y4GcdDaTMxbmlg)
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcOy69IahsL2ghI-Ao589jBssN0Fou3oVRWHRR7goK2wxFCk8OtT0CgVwoqahCqrChmEfeKXRgJH3OsxA3X1rirJkCQakgxdXsLIJ1x2cjACkHc83bkjCMPUPwcrFNvRxI-gIgnxw?key=dwhMnpu0Y4GcdDaTMxbmlg)
+
+![Image](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd_cOh0Y_6DuD7SgZbeCfmWRTsTJp5RpJcUN6Vk27iW7gpmrbWLU_XkN6hgVWZZHJat5vRH99diwZ12Lps_2ck4xvJ6QvB2VrAwHigAFWyz5tU84sQWzFeN2x-PKuX208TDsTBXyQ?key=dwhMnpu0Y4GcdDaTMxbmlg)
+ Trong quá trình dịch và chia sẻ Pháp, Con có gì sai sót, không đúng Lý, đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho
+
+中国是具有五千年历史的文明古国，以礼仪之邦著称，礼仪中最基本的精神就是尊重他人。尊重别人就是尊重自己，尊重不是给予而是收获，是自心慈悲的真诚流露。学佛首先要尊重别人，尊重会产生信任，可以让你的敌人变成你的朋友，学佛学法要用平等心去承认别人的成绩，赞赏他人，尊重他人的人格，社会将会更加稳定，人民更加团结，家庭更加和睦。尊重每一个人，尊老爱幼也是我们学佛人很重要的美德。
+
+2014-12-07 卢台长墨尔本《玄艺综述》大型解答会
