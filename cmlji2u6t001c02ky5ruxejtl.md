@@ -1,0 +1,30 @@
+---
+title: "Bệnh Bạch biến niệm kinh gì?"
+datePublished: Thu Feb 12 2026 13:34:22 GMT+0000 (Coordinated Universal Time)
+cuid: cmlji2u6t001c02ky5ruxejtl
+slug: benh-bach-bien-niem-kinh-gi-103
+canonical: http://timkhaithi.pmtl.site/2025/03/benh-bach-bien-niem-kinh-gi.html
+tags: benh-tat
+
+---
+
+Nữ thính giả : Con có một người bạn theo đạo Thiên Chúa, trên đầu anh ấy chỗ thái dương có bạch biến phong, từng mảng từng mảng trắng.
+
+
+
+
+Đài Trưởng đáp: Giống như vậy đều là bệnh nghiệp chướng , bảo anh ta niệm Lễ Phật Đại Sám Hối Văn cộng thêm “ Ngôi nhà nhỏ” là được rồi, còn cần phải phóng sinh nhiều.
+
+
+
+
+白癜风念什么经?
+
+女听众 : 我有个朋友是信基督教的，他头上太阳穴那儿有白癜风，一块儿一块儿白的。
+
+
+
+
+台长答 : 像这种都是业障病，叫他念礼佛大忏悔文加小房子就可以了，还要多放生。
+
+Wenda20121014B 45:36
