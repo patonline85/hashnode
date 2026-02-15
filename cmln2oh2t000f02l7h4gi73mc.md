@@ -1,0 +1,43 @@
+---
+title: "Niệm Tâm kinh có thể trở nên thông minh hơn"
+datePublished: Sun Feb 15 2026 01:34:22 GMT+0000 (Coordinated Universal Time)
+cuid: cmln2oh2t000f02l7h4gi73mc
+slug: niem-tam-kinh-co-the-tro-nen-thong-minh-hon-128
+canonical: http://timkhaithi.pmtl.site/2025/02/niem-tam-kinh-co-tro-nen-thong-minh-hon.html
+tags: khai-thi
+
+---
+
+Wenda20150705A 02:00
+
+
+
+
+Hỏi: Ngài từng nói Tâm kinh có thể giúp người ta khai mở trí huệ, còn có thể tiêu trừ phiền não. Nếu mỗi ngày kiên trì niệm tụng, người sinh ra không thông minh có thể trở thành người thông minh không ạ?
+
+
+
+
+Đáp:  Đương nhiên rồi, Tâm kinh tiêu trừ phiền não, khai mở trí huệ! Thực ra khi sinh ra ai cũng không thông minh lắm, con nói xem ai sinh ra đã rất thông minh ?  Đều là dần dần học hỏi rồi mới trở nên thông minh. Có người bẩm sinh chỉ số thông minh không cao lắm, nhờ Bồ Tát không ngừng gia trì, chỉ số thông minh của họ cũng sẽ tốt lên. (Dạ con hiểu ạ)
+
+
+
+
+念心经可以变聪明
+
+
+
+
+wenda20150705A 02:00
+
+
+
+
+问:您说过心经可以帮助人家开智慧,还有去除烦恼。如果每天坚持念,生出来不聪明的人也可以变成一个聪明人吗?
+
+
+
+
+●答:那当然了,心经去烦恼、开智慧的!其实人生出来的时候都不是很聪明的,你说哪一个人生出来就很聪明的?都是慢慢学了变聪明的。 有些人天生智商不是太好,靠菩萨不断地给他加持,他智商也会好起来的(明白)
+
+🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .
