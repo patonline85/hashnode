@@ -1,0 +1,51 @@
+---
+title: "Mỗi vị Bồ Tát có một cảnh giới khác nhau.  Mỗi vị Bồ Tát đều có nền tảng khác nhau để trở thành Phật."
+datePublished: Mon Feb 16 2026 01:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmloi4bas000102ice8tv11z1
+slug: moi-vi-bo-tat-co-mot-canh-gioi-khac-nhau-moi-vi-bo-tat-deu-co-nen-tang-khac-nhau-de-tro-thanh-phat-49
+canonical: http://timkhaithi.pmtl.site/2025/02/moi-vi-bo-tat-co-mot-canh-gioi-khac.html
+tags: khai-thi
+
+---
+
+🌼Vì vậy, một số người tận tụy cứu người và họ trở thành Phật sau khi thành công.
+
+
+
+
+🌼Một số người thành công nhờ làm công Đức.
+
+Một số người đã thành công trong việc bố thí tiền bạc, Pháp và sự vô úy.
+
+
+
+
+🌷 Đó là lý do tại sao trở thành đủ loại chư Phật khác nhau! 
+
+
+
+
+wenda20160103B 21:39
+
+
+
+
+每位菩萨的境界不一样，
+
+每位菩萨修成佛的自己的根基不一样。
+
+
+
+
+所以有的人是专门度人成功的他成为佛，
+
+有的人是专门做功德成功的，
+
+有的人是专门财施、法施、无畏施成功的，
+
+所以才会成为各种各样不同的佛啊！
+
+
+
+
+🙏🙏🙏Trong quá trình dịch có điều gì sai xót ，không đúng lý đúng pháp, xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho Con
