@@ -1,0 +1,48 @@
+---
+title: "Hắc khí hình thành như thế nào ? Làm sao để tiêu trừ nó"
+datePublished: Wed Feb 18 2026 01:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmlrd00n3000002l1fvix5to9
+slug: hac-khi-hinh-thanh-nhu-the-nao-lam-sao-de-tieu-tru-no-868
+canonical: http://timkhaithi.pmtl.site/2025/02/hac-khi-hinh-thanh-nhu-nao-lam-sao-e.html
+tags: khai-thi
+
+---
+
+Thính giả nam: xin chào Sư Phụ, lần trước Sư Phụ đã nhắc đến Hắc khí, Hắc khí trong  con người được hình thành như thế nào?
+
+
+
+
+ Sư phụ: Nếu hôm nay con làm một chút điều xấu, ngày mai lại làm một chút điều xấu, ngày mốt lại có mốt chút ý niệm xấu , ngày mốt và ngày kia lại có một chút ý niệm xấu nữa, sau một thời gian dài thì tất cả đều là hắc khí.
+
+ (Cách để tiêu trừ Hắc Khí là niệm kinh, phát nguyện và phóng sinh, đúng không, Sư phụ?) Đúng vậy, con cần phải niệm Lễ Phật Đại Sám Hối Văn để tiêu trừ nó.
+
+
+
+
+ Giống như chiếc áo sơ mi trắng này đã chuyển sang màu đen vậy? Thêm một ít nước tương hôm nay, một ít mực ngày mai và một thứ bẩn thỉu vào ngày kia. Theo thời gian, chiếc áo sơ mi trắng này sẽ trở thành chiếc áo sơ mi đen. Vậy làm sao để tiêu trừ ? Rửa sạch mỗi ngày. "Rửa" có nghĩa là gì? “Rửa” có nghĩa là niệm bài Lễ Phật Đại Sám Hối Văn, tức là liên tục sám hối lỗi lầm của chính mình.
+
+
+
+
+～ Wenda20160826 35:21
+
+
+
+
+【黑氣是如何形成的，如何消掉】❓
+
+
+
+
+男聽眾：師父，您上次說了「黑氣」，人的黑氣是怎樣形成的呢？
+
+
+
+
+台長答：今天做一點壞事，明天做一點壞事，後天動一點壞腦筋，大後天再動一點壞腦筋，時間長了都是黑氣了（消除黑氣的方法是念經、許願、放生，是這樣嗎，師父？）對啊，就是要念禮佛大懺悔文，要把它消掉。
+
+
+
+
+就像這個白襯衫怎麼變黑的？今天弄點醬油，明天弄點墨汁，後天又弄點什麼髒的東西了，時間長了，這件白襯衫就變成黑襯衫了。那麼怎麼消的呢？天天洗。怎麼叫洗？「洗」就是念禮佛大懺悔文，就是要不斷地懺悔自己的毛病。
