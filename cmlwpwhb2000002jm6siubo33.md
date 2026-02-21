@@ -1,0 +1,35 @@
+---
+title: "Vì sao đồng tu làm việc tại nhà tang lễ dễ bị vong linh quấy rầy"
+datePublished: Sat Feb 21 2026 19:34:22 GMT+0000 (Coordinated Universal Time)
+cuid: cmlwpwhb2000002jm6siubo33
+slug: vi-sao-dong-tu-lam-viec-tai-nha-tang-le-de-bi-vong-linh-quay-ray-930
+canonical: http://timkhaithi.pmtl.site/2025/01/vi-sao-ong-tu-lam-viec-tai-nha-tang-le.html
+tags: khai-thi
+
+---
+
+Người nghe nữ: Gần đây, trong phần "Giải đáp thắc mắc qua thư", Sư Phụ có nói rằng đồng tu làm việc tại nhà tang lễ nếu tụng kinh ở đó sẽ gặp rắc rối. Bởi nếu tụng kinh phát ra tiếng, các hương linh ở nhà tang lễ sẽ đến tìm họ xin ngôi nhà nhỏ , không thể kịp siêu độ. Xin hỏi Sư Phụ, việc các linh hồn xin ngôi nhà nhỏ chẳng phải cũng cần tuân theo âm luật và phải được địa phủ phê duyệt sao? Vì sao các linh hồn ở nhà tang lễ lại có thể tìm đồng tu xin ngôi nhà nhỏ? Có phải vì họ tụng ngôi nhà nhỏ mới dẫn đến việc này không?
+
+
+
+
+Lư Đài Trưởng đáp: Con đã đến nhà của họ rồi, nhà tang lễ chính là nơi của họ. Khi con ở ngoài, người ta sẽ không tìm đến con. Nhưng khi con bước vào nhà của họ, đương nhiên họ có thể yêu cầu con theo ý họ.
+
+
+
+
+***
+
+为何在殡仪馆工作的同修易惹灵性
+
+Wenda20180629 46:55 
+
+
+
+
+女听众：师父在最近的《解答来信疑惑》里开示，在殡仪馆工作的同修在单位里念经会有麻烦，因为如果念出声音，殡仪馆的灵性都会来找他要小房子，来不及超度。请问师父，灵性要小房子也是要遵守阴律，需要通过地府批准，为什么殡仪馆的灵性可能会找同修要小房子呢？是因为他会念小房子惹来的吗？
+
+
+
+
+“卢台长”答：你到他的家里了，殡仪馆就是他的地方。你在外面，人家不来找你，你跑到他家里来，人家当然可以问你要。
