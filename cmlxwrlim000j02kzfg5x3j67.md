@@ -1,0 +1,21 @@
+---
+title: "Về tục không quét rác vào ngày Mùng 1 Tết"
+datePublished: Sun Feb 22 2026 15:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmlxwrlim000j02kzfg5x3j67
+slug: ve-tuc-khong-quet-rac-vao-ngay-mung-1-tet-729
+canonical: http://timkhaithi.pmtl.site/2025/01/ve-tuc-khong-quet-rac-vao-ngay-mung-1.html
+tags: tet-nguyen-dan
+
+---
+
+☎️Thính giả nữ: Các bậc trưởng bối nói ngày mùng 1 Tết không được quét rác và vứt rác, những người học Phật như chúng con có chú ý điều này không?
+
+
+
+
+📞Đài trưởng đáp : Nói cho hay thì đó là một phong tục, theo quan điểm của phong thủy, nếu  làm điều tốt vào ngày đầu tiên của năm mới thì sẽ có một năm tốt lành, và nếu làm điều xấu thì sẽ xấu trong một năm. Tức là mùng 1 đầu năm trong nhà đầy của quý, rác có thể quét, quét vào trong, đừng quét ra ngoài, đừng đổ rác, con đem của quý vứt ra ngoài, trong nhà nguyên năm sẽ không có của quý, không có tiền nữa (hình như còn nói rằng cũng không được gội đầu) không thể cạo tóc, không thể gội đầu, đó là như vậy (Dạ được, cảm ơn Đài trưởng)
+
+
+
+
+⛅️——Wenda20130208 01:11:52
