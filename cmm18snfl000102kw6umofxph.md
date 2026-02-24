@@ -1,0 +1,23 @@
+---
+title: "Nếu nạn quan 3-6-9 tuổi, liệu con có thể đốt thêm một ngôi nhà nhỏ trong ngày mùng một Tết Nguyên đán được không ?"
+datePublished: Tue Feb 24 2026 23:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmm18snfl000102kw6umofxph
+slug: neu-nan-quan-3-6-9-tuoi-lieu-con-co-the-dot-them-mot-ngoi-nha-nho-trong-ngay-mung-mot-tet-nguyen-dan-duoc-khong-73
+canonical: http://timkhaithi.pmtl.site/2024/12/neu-nan-quan-3-6-9-tuoi-lieu-con-co-ot.html
+tags: 369
+
+---
+
+(Huyền Nghệ Q &A, 23/11/2014 ) 
+
+Thính giả: Ví dụ như năm nay sinh nhật người này là nạn 3-6-9, con nghe có sư huynh nói: “Nếu sợ nạn quan 3-6-9 của mình có chuyện gì, gọi điện hỏi sư phụ cũng khó, sau khi thắp đầu vào đêm giao thừa vào ngày mùng một Tết Nguyên đán, con có thể đốt 21, thậm chí 49 tấm cho người cần kinh của mình.” Như vậy có được không ạ?
+
+Đài Trưởng: Được.
+
+Thính giả: Chính là nói nạn 4-6-9 đúng không ạ?
+
+Đài Trưởng: Ngày đầu năm đốt thêm một chút cũng không sao.
+
+Thính giả: Ồ, con hiểu rồi. Vì có sư huynh bảo đốt 49 tấm một lúc, không biết có được không? 
+
+Đài Trưởng: Vì con đã chỉ ra rồi, đốt 49 tấm cũng không sao.
