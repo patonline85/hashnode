@@ -1,0 +1,119 @@
+---
+title: "Tổng hợp các khai thị Phật học thường gặp  Liên quan đến Kinh A Di Đà, Ngôi nhà nhỏ"
+datePublished: Mon Mar 02 2026 01:34:34 GMT+0000 (Coordinated Universal Time)
+cuid: cmm8iaidl000p02jx905eckoe
+slug: tong-hop-cac-khai-thi-phat-hoc-thuong-gap-lien-quan-den-kinh-a-di-da-ngoi-nha-nho-636
+canonical: http://timkhaithi.pmtl.site/2024/11/tong-hop-cac-khai-thi-phat-hoc-thuong_26.html
+tags: kinh-a-di-da
+
+---
+
+Tổng hợp các khai thị Phật học thường gặp
+
+Liên quan đến Kinh A Di Đà, Ngôi nhà nhỏ
+
+2015-08-14
+
+
+
+
+14. Kinh A Di Đà và thánh hiệu A Di Đà Phật
+
+Wenda20120311B 18:22
+
+
+
+
+Tu theo pháp môn của Đài trưởng có thể đồng thời niệm A Di Đà Phật không
+
+
+
+
+Thính chúng: Trước đây con học theo Pháp môn Tịnh độ, nhưng bây giờ con đã bắt đầu theo học Pháp môn của đài trưởng. Bây giờ mỗi ngày con đều niệm kinh bài tập, niệm ngôi nhà nhỏ. Sau đó con có thể niệm thêm thánh hiệu A Di Đà Phật và thánh hiệu Quán Thế Âm Bồ Tát không?
+
+
+
+
+Đài trưởng: Bây giờ con đã tu theo đài trưởng thì hãy cố gắng dựa vào đó để tu tập. Vậy thì khi nào có thể niệm A Di Đà Phật? Trong sách của đài trưởng cũng có nói, nếu có thể vào những năm cuối đời, khá ổn định hơn một chút rồi, bản thân chuẩn bị ra đi rồi, không muốn ở nhân gian nữa, ở nhân gian đã trải qua nhiều việc tương đối rồi và muốn đến thế giới Tây Phương Cực Lạc. Bởi vì những nghiệp chướng con đều đã trả xong rồi, trên người con cũng đã không còn vong linh nữa rồi, rất ổn định rồi, bình bình an an rồi, vậy thì khi đó con niệm A Di Đà Phật có thể dễ dàng về trời. Hiểu chứ?
+
+Học theo pháp môn này của đài trưởng, nếu niệm A Di Đà Phật rất dễ có thể về được trời. Thầy không phải đang nói giỡn với con.
+
+
+
+
+( con biết)
+
+
+
+
+Thầy có một người bạn thân cũng như vậy. Ông ta vừa học niệm kinh theo pháp môn tâm linh,mỗi ngày đều niệm Kinh A Di Đà, Kết quả là có ba lần bị tái phát bệnh tim xém chút nữa là đi rồi. Ông ấy đến hỏi thầy: Tôi đã niệm kinh rồi tại sao giống như là sức khoẻ xém chút nữa là đã đi rồi. “
+
+
+
+
+Thầy nói với ông ấy: Nếu không đi thì làm sao ông đến được thế giới Tây Phương cực Lạc? Ông ở nhân gian đến sau cùng không còn thân mạng nữa mới có thể về trời được chứ! Bây giờ ông có muốn đi không? Nếu như muốn thì hãy cố gắng tiếp tục niệm kinh.
+
+Ông ấy nói: bây giờ tôi vẫn chưa muốn đi.
+
+
+
+
+Cũng giống như con vậy, bây giờ nói con phải đi thì con liền trả lời “ Không không không, con không muốn đi”.
+
+
+
+
+( Con muốn đi, haha)
+
+
+
+
+Nếu muốn ra đi thì con cứ thử mà xem, con niệm một lúc hai loại kinh văn. Con đừng có đến lúc nó nằm trên giường rồi nhìn thấy những đứa con của mình, nhìn thấy điều gì đó... Đến lúc đó không muốn đi cũng không còn cách nào nữa! Bởi vì khi con người rời khỏi thế gian này thì nhục thể đã hư hỏng, khi nhục thể không còn nữa thì mới có thể ra đi được. Hơn nữa con có lên trời được hay không lại là một khái niệm khác.
+
+
+
+
+( Đúng. Con biết rồi. Chính là nói rằng cảnh giới của chúng con bây giờ không phải nói rằng tôi muốn như thế nào. Thực ra chúng con vẫn chưa tu tập tốt thì nhất định phải tu được...)
+
+
+
+
+Con cũng biết bản thân không tu được tốt, còn cho rằng có thể về trời được sao? Cũng giống như khi còn đang học tiểu học, con nói rằng tôi nhất định phải học đại học. Vậy con thi được vào không? Ít nhất là con học xong tiểu học, học trung cấp, học trung học xong hết, thì con mới có thể nắm chắc được sẽ học đại học. Nói rằng học tiểu học, trung cấp, cũng giống như là con ở nhân gian chịu đủ cái khổ này rồi đến cái khổ khác, những phiền não và rất nhiều thứ con vẫn chưa có thể tiêu trừ được, vậy thì làm sao con mới có thể đến được thế giới Tây Phương cực lạc chứ? Lẽ nào Bồ Tát ở cõi Tây phương Cực lạc còn có khổ đau sao? Người ta đã không còn đau khổ gì nữa mới có thể trở thành Bồ Tát được.
+
+
+
+
+( Con biết rồi. Suy nghĩ của con đã sai lệch vô cùng lớn)
+
+
+
+
+Đúng là mơ mộng hão huyền! Chúng ta bắt buộc phải tiêu trừ đi những nghiệp chướng trên người, tiêu trừ đi vong linh trên người, chúng ta mới có thể đến được cảnh giới cao hơn. Bồ Tát là bởi vì đã tiêu trừ đi được những phiền não ở nhân gian, đang ở trên trời rồi, vậy nên mới không còn sợ bất kỳ việc gì nữa, đã trở thành Bồ Tát rồi.
+
+
+
+
+Các con bây giờ thì khắp người đều là phiền não, khắp người đều là đau bệnh, trong nhà thì hết con cái rồi đến việc này việc kia một đống mâu thuẫn. Con nói xem con muốn niệm A Di Đà Phật là có thể lên trời được rồi, Vậy thì thế giới này còn nhân quả hay không?
+
+Đài trưởng bây giờ chính là đang giúp các con làm trước công việc, giúp cho những nghiệp chướng ở nhân gian của các con toàn bộ đều tiêu trừ hết, vậy thì đến lúc đó con muốn đến cõi nào thì đến được cõi đó. Vậy nên Bồ Tát nói: Nhân thành tức Phật thành.
+
+Chỉ cần con làm người giống như Bồ Tát rồi, Con nói xem con muốn đến cõi nào mà không được? Bản thân con cũng không giống người, ở nhân gian đã đau khổ thành ra bộ dạng đó, sống trong sự đau khổ chính là đang sống ở qu.ỷ đạo rồi. Con nói xem con làm sao có thể đến được tây phương cực lạc? Đài trưởng đã giải thích với con như vậy vẫn còn chưa hiểu sao?
+
+
+
+
+( Con hiểu rồi)
+
+***
+
+佛学常识开示集锦（十二）关于阿弥陀经、关于小房子
+
+2015-08-14
+
+14. 阿弥陀经与阿弥陀佛圣号
+
+Wenda20120311B 18:22 修台长法门是否可以同时念阿弥陀佛
+
+听众：我之前是学净土法门，现在跟着您开始学台长的法门，我现在每天在做完功课、念完小房子之后，我能不能加念阿弥陀佛佛号和观世音佛号呀？
+
+台长：你现在跟着台长修的话就好好地照着台长修。“阿弥陀佛”到了什么时候可以念呢，台长本来书上都讲了的，能够在晚年的时候，比较安定一点了，自己准备想走了，不想在人间了，在人间已经过得差不多想到西方极乐世界了，因为你的孽障都还完了，你的身上灵性也没有了，很安定了，平平安安了，那个时候你念的话更容易上去，明白吗？学了台长这个法门，念阿弥陀佛的话，很容易上去的，我不是跟你们开玩笑的（我知道）我有一个好朋友就是，他一边在念心灵法门，还天天在念阿弥陀经，结果三次心脏病复发就差点走。他来问我：“我念了经为什么好像身体突然之间要走”，我跟他说了：“如果你不走，你怎么上西方极乐世界啊？你在人间总归要没命了才能上去的呀！你现在想不想走？想走你就好好再念下去。”他说：“我现在还不想走。”像你一样，现在叫你走的话“我不不不，不走”，呵呵（我想走，呵呵）想走你就试试看，那两个经一起念。你不要到时候躺在床上看见自己孩子，看见什么都……那个时候再不想走就没办法了！因为人要上去的话一定要肉体坏掉，要没有肉体的时候才能走的，而且你上得去上不去是另外一个概念了（对，我知道了。就是说我现在的境界，不是说我怎么想的，其实我真的没有修好，一定要修得……）你都知道自己没有修好，还以为能够上去？等于你在读小学，你说“我一定要读大学”，你考得进吗？至少小学、中学、高中都读得很好，你才有这个把握读大学啊。这个小学、中学就等于你在人间这个苦那个苦，烦恼什么一大堆你都没有消除，你怎么能够到西方极乐世界去啊？菩萨在西方极乐世界难道就是这个苦那个苦吗？人家什么苦都没有才能成菩萨的（知道了，我的想法偏差非常大的）就是好高骛远！我们必须把身上的孽障去除，把灵性去除，我们才能到更高的境界。菩萨是什么，菩萨就是因为已经消除了人间的烦恼，已经在天上了，所以就不怕任何事情，成为菩萨了。你们现在浑身都是烦恼，浑身都是病痛，家里啊、孩子啊什么都是一大堆矛盾，你说你想念念阿弥陀佛就能上去了，这个世界还有因果吗？台长现在就是帮你们做前期工作，把你们在人间的孽障全部扫掉，那么到时候你想到哪个道就到哪个道。所以菩萨说“人成即佛成”，你人做得像菩萨了，你说你到哪个道不行啊？你人都不像人啊，在人间苦得这个样子，活在痛苦里面就是活在鬼道一样的，有的人痛苦得活得像畜生道一样的，你说你怎么到西方极乐世界去啊？台长给你这样一解释不就明白了吗？（明白了）
