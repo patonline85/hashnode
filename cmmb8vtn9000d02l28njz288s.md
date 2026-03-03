@@ -1,0 +1,32 @@
+---
+title: "DỤC VỌNG KHÔNG BAO GIỜ THOẢ MÃN ĐƯỢC LÒNG NGƯỜI"
+datePublished: Tue Mar 03 2026 23:34:31 GMT+0000 (Coordinated Universal Time)
+cuid: cmmb8vtn9000d02l28njz288s
+slug: duc-vong-khong-bao-gio-thoa-man-duoc-long-nguoi-467
+canonical: http://timkhaithi.pmtl.site/2024/11/duc-vong-khong-bao-gio-thoa-man-uoc.html
+tags: loi-tri-tue
+
+---
+
+"DỤC VỌNG KHÔNG BAO GIỜ THOẢ MÃN ĐƯỢC LÒNG NGƯỜI"
+
+
+
+
+Năm đó, có người hỏi Đức Phật: "Thông quatu tâm, ngài rốt cuộc đã đạt được gì?"
+
+Đức Phật trả lời: "Ta chẳng đạt được gì cả."
+
+Người kia lại hỏi: "Vậy ngài tu tâm để làm gì?"
+
+Đức Phật mỉm cười nói: "Nhưng mà, ta có thể nói cho con biết những thứ ta đã mất đi. Ta mất đi sự giận dữ, lo lắng, bi quan, chán nản, bất an. Ta mất đi ba độc tham, sân, si và mọi vô minh, nghiệp chướng, tập khí của kẻ phàm phu tục tử. Ta cũng mất đi nỗi sợ hãi về sự già đi và cái chết."
+
+Đức Phật dạy : “ Tri túc thường lạc ” ( nghĩa là biết đủ ắc hạnh phúc ) nhưng người lại luôn thường bàn luận về: "Nhiều năm sau ta sẽ ra sao, sự nghiệp của ta sẽ thế nào, tài chính của ta sẽ ra sao, làm sao để kiếm tiền..."
+
+Con người quên rằng,cuộc sống của bản thân là hữu hạn và vô thường, trong khi tiền bạc là vô hạn. Kiếm bao nhiêu cũng chẳng đủ, mà dùng cũng chẳnghết, dục vọng cũng không bao giờ thỏa mãn được lòng người. Chúng ta dùng cuộc đời ngắn ngủi của mình để theo đuổi tiền tài vô hạn, hy vọng rằng điều đó sẽ thỏa mãn những ham muốn vô độ của mình, cuối cùng bị dục vọng của tiền tài làm cạn kiệt đến chết
+
+Trích “ Lư Đài Trưởng kể chuyện ”
+
+   Mẫu chuyện nhỏ - tr
+
+í tuệ lớn
