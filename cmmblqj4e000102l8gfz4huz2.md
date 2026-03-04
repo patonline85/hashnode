@@ -1,0 +1,22 @@
+---
+title: "Nhiều người kết bạn xấu mặc dù biết rằng họ sẽ làm tổn thương mình trong tương lai, vẫn tiếp xúc xã giao với họ."
+datePublished: Wed Mar 04 2026 05:34:19 GMT+0000 (Coordinated Universal Time)
+cuid: cmmblqj4e000102l8gfz4huz2
+slug: nhieu-nguoi-ket-ban-xau-mac-du-biet-rang-ho-se-lam-ton-thuong-minh-trong-tuong-lai-van-tiep-xuc-xa-giao-voi-ho-19
+canonical: http://timkhaithi.pmtl.site/2024/11/nhieu-nguoi-ket-ban-xau-mac-du-biet.html
+tags: loi-tri-tue
+
+---
+
+Nhiều người kết bạn xấu mặc dù biết rằng họ sẽ làm tổn thương mình trong tương lai, vẫn tiếp xúc xã giao với họ.
+
+ Có người từng hỏi Đài Trưởng: “Đài Trưởng, con bị người bạn này làm tổn thương con quá nhiều nhưng vẫn không thể buông anh ấy được. con phải làm sao?”
+
+ Đài Trưởng nói với cậu ấy: “Nếu con ăn một quả táo, cắn 1 miếng rồi, cảm thấy mùi vị bất ổn, nhất định là bị hư rồi, con tiếp tục ăn hay là không do dự vứt nó vào thùng rác? , nếu có người cố ý làm tổn thương con rồi, con nên biết đây là chúng sinh không có duyên, con sẽ xóa anh ấy khỏi danh sách bạn bè của mình, hay tiếp tục để anh ấy làm tổn thương con? 
+
+"Mọi người phải hiểu rằng,  nếu tiếp tục ăn quả táo bị hư, quý vị có khả năng ăn trúng một con sâu." có thể bị khó tiêu. Nếu quý vị tiếp tục coi người đó như một người bạn, cuộc đời của quý vị có thể bị tiêu cực, chán nản và thường xuyên bị người đó làm tổn thương. Một quả táo không thể làm tổn thương quý vị, nhưng nếu quý vị kiên trì nhét nó vào bụng thì sẽ có lỗi với chính mình. Và việc mất đi một người bạn xấu, giống như vứt một quả táo bị hư, đó có thể là sự đảm bảo sức khỏe cho mình. Chúng ta học Phật là phải học cách đối xử chân thành với người khác, sống đúng với lương tâm của mình, phải kết bạn với người chân thành, kết bạn với người khác bằng tấm lòng từ bi và hòa hợp thì chắc chắn chúng ta sẽ được sự chân thành. Bởi vì chân lý về  luân hồi của cuộc sống nhân gian, chính là thiện hữu thiện báo, ác hữu ác báo. 
+
+
+
+
+2019-05-09 Singapore – minh tâm kiến tánh nghe Phật âm, Phá mê khai ngộ khỏi mê lầm
