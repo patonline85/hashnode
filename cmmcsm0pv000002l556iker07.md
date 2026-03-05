@@ -1,0 +1,21 @@
+---
+title: "nếu tay thương xuyên bị tê, điều đó có nghĩa là độ nhớt của máu đã rất cao rồi,"
+datePublished: Thu Mar 05 2026 01:34:32 GMT+0000 (Coordinated Universal Time)
+cuid: cmmcsm0pv000002l556iker07
+slug: neu-tay-thuong-xuyen-bi-te-dieu-do-co-nghia-la-do-nhot-cua-mau-da-rat-cao-roi-141
+canonical: http://timkhaithi.pmtl.site/2024/11/neu-tay-thuong-xuyen-bi-te-ieu-o-co.html
+tags: benh-tat
+
+---
+
+wenda20131013A 44:15
+
+nếu tay thương xuyên bị tê, điều đó có nghĩa là độ nhớt của máu đã rất cao rồi, và các mạch máu không lưu thông, khi máu không lưu thông dễ dẫn đến đột quỵ. Nếu máu không lưu thông tới tim, thì sẽ rất nguy hiểm.
+
+Cần uống nhiều nước, vì uống nhiều nước, máu sẽ trở lên loãng hơn và độ nhớt của máu sẽ không cao. Giống như khi còn nhỏ đi tiêm mà máu không ra, bác sĩ sẽ kêu chúng ta uống nước, vì sau khi uống nước, máu sẽ trở lên loãng hơn, đầy đặn hơn và khi bom vào sẽ làm các mạch máu căng ra, đây là nguyên nhân như vậy
+
+  wenda20131013A 44:15
+
+手只要經常發麻的人，說明血凝度已經很高了，而且血脈根本不流通，不流通的話很容易中風的。 流到心臟這裡不通的話，你就麻煩了。
+
+要多喝水，多喝水的話血會變成比較薄的，血凝度不會很高。 就像我們小時候不是紮針，血出不來嗎？ 醫生會叫你喝水的，喝水了之後，血就會比較淡，比較飽滿，一沖的話，會把血管衝脹，就是這個原因。
