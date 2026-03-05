@@ -1,0 +1,45 @@
+---
+title: "Cầu công tác chức vị không thể khởi ý niệm xấu"
+datePublished: Thu Mar 05 2026 03:34:28 GMT+0000 (Coordinated Universal Time)
+cuid: cmmcww97k000002l8cgke5p25
+slug: cau-cong-tac-chuc-vi-khong-the-khoi-y-niem-xau-125
+canonical: http://timkhaithi.pmtl.site/2024/11/cau-cong-tac-chuc-vi-khong-khoi-y-niem.html
+tags: huyen-nghe
+
+---
+
+“Huyền Nghệ Hỏi Đáp  8/12/2013"
+
+🌻Thính giả: Con vẫn luôn mong có một vị trí công việc mà con ao ước, nhưng con lại chưa bao giờ có được cơ hội.
+
+
+
+
+🍀Đài Trưởng: Con niệm Chuẩn Đề Thần Chú. Nếu muốn có công việc này, còn có thể niệm nhiều Như Ý Bảo Luân Vương Đà La Ni. Còn có nhớ kỹ, trong công việc không được có những ý niệm xấu, nói ví dụ nhìn đến Giám đốc là nam, không thể dùng sắc đẹp mê hoặc, con hiểu không?  Con cảm thấy mình dễ thương, xinh đẹp nhưng không thể có suy nghĩ này trong đầu. Nếu con có những suy nghĩ này con sẽ không thành công trong công việc.
+
+
+
+
+🌻Thính giả: Dạ con hiểu, Như Ý Bảo Luân Vương Đà La Ni con niệm 49 biến sao ạ.
+
+
+
+
+🍀Đài Trưởng: Như Ý Bảo Luân Vương Đà La Ni niệm 49 biến, Chuẩn Đề Thần Chú cũng niệm 49 biến.
+
+
+
+
+🌻Thính Giả: Sư Phụ xem con có cần niệm Giải Kết Chú cho những người liên quan có thể giúp đỡ con trong công việc không ạ?
+
+
+
+
+🍀Đài trường: Có thể.
+
+
+
+
+🪷🪷🪷🪷🪷🪷
+
+🙏🏻Trong quá trình dịch nếu có gì chưa đúng lý, đúng pháp thỉnh chư Phật, chư Bồ Tát, chư Hộ Pháp từ bi tha thứ cho con 🙏🏻
