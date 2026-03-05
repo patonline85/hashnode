@@ -1,0 +1,23 @@
+---
+title: "Thông tin của NNN có thể viết bằng tiếng Trung và tiếng Anh được không?"
+datePublished: Thu Mar 05 2026 15:34:24 GMT+0000 (Coordinated Universal Time)
+cuid: cmmdmm3jf000002l45jceggxc
+slug: thong-tin-cua-nnn-co-the-viet-bang-tieng-trung-va-tieng-anh-duoc-khong-393
+canonical: http://timkhaithi.pmtl.site/2024/11/thong-tin-cua-nnn-co-viet-bang-tieng.html
+tags: nnn
+
+---
+
+wenda20131206 01:01:28
+
+Khán giả nữ: Nếu trong một NNN, phần người niệm kinh ghi tên tiếng Anh và phần kính tặng ghi tiếng Trung hoặc ngược lại có được không?
+
+ Sư phụ trả lời: Có, chắc chắn rồi.
+
+wenda20131206  01:01:28  
+
+小房子的敬赠及落款可以分别填写中英文吗
+
+女听众：如果一张小房子，落款赠的那边写英文名字，敬赠那边写中文名字，就是写某某某名字的要经者，这样可以吗？
+
+台长答：可以，完全可以。
