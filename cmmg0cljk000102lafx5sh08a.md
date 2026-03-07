@@ -1,0 +1,38 @@
+---
+title: "Thời kỳ mạt pháp khẩu nghiệp bị giám sát chặt chẽ, phỉ báng Phật hoặc phỉ báng Pháp dễ bị dẫn đi (mất mạng)."
+datePublished: Sat Mar 07 2026 07:34:28 GMT+0000 (Coordinated Universal Time)
+cuid: cmmg0cljk000102lafx5sh08a
+slug: thoi-ky-mat-phap-khau-nghiep-bi-giam-sat-chat-che-phi-bang-phat-hoac-phi-bang-phap-de-bi-dan-di-mat-mang-607
+canonical: http://timkhaithi.pmtl.site/2024/11/thoi-ky-mat-phap-khau-nghiep-bi-giam.html
+tags: khai-thi
+
+---
+
+zongshu20181027 05:59
+
+📞Thính giả nữ: Thưa Sư phụ, xin hãy xem giúp hoa sen của đệ tử số 8901, là nữ. Cô ấy hỏi khi nào có thể tham gia pháp hội của Sư phụ. Cô ấy rất tích cực trong việc hoằng pháp, xin Sư phụ từ bi chỉ dẫn. Cảm ơn Sư phụ.
+
+
+
+
+🪷Sư phụ trả lời: Bảo cô ấy cố gắng hơn nữa, hoằng pháp rất tốt, nhưng miệng lại khiến công đức bị rò rỉ (Thính giả: Vâng, còn điều gì khác cần lưu ý không ạ?). Không có gì đâu, chỉ cần tránh tạo khẩu nghiệp, bởi vì trong thời kỳ mạt pháp này, khẩu nghiệp bị giám sát rất nghiêm ngặt. Nếu con làm việc gì đó, miễn là không làm hại người khác, thì thông thường sẽ không tính là nghiệp nặng. Nhưng nếu con tạo một khẩu nghiệp, phỉ báng Phật hoặc phỉ báng chánh pháp, nghiệp này sẽ dẫn đến việc con bị đưa đi (mất mạng). Hiện nay có rất nhiều người mất đi theo cách này.
+
+
+
+
+zongshu20181027 05:59
+
+
+
+
+末法时期口业收得特别紧，谤佛或诽谤正法容易被带走
+
+
+
+
+女听众：师父，看一下弟子证号8901的莲花，女的，她问什么时候能够出来参加师父的法会。她弘法特别厉害，请师父慈悲，感恩师父。
+
+
+
+
+台长答：叫她好好努力，弘法好，但是嘴巴也有漏（好。还有其他注意的吗？）没有什么，就嘴巴不要漏，因为在末法时期口业收得特别紧。你做点其他事情，你只要不害人，一般在人间生活，都不会算一个很大的业，但是你造过一个口业，谤佛或者诽谤正法了，你这个业，就会带走的，现在有很多人都这么走掉的。
