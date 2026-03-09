@@ -1,0 +1,26 @@
+---
+title: "Phải tự mình tích phước, phải biết quý trọng phước và sử dụng tiền một cách tiết kiệm"
+datePublished: Mon Mar 09 2026 01:34:26 GMT+0000 (Coordinated Universal Time)
+cuid: cmmiidb6b000102l75thuf0n6
+slug: phai-tu-minh-tich-phuoc-phai-biet-quy-trong-phuoc-va-su-dung-tien-mot-cach-tiet-kiem-444
+canonical: http://timkhaithi.pmtl.site/2024/11/phai-tu-minh-tich-phuoc-phai-biet-quy.html
+tags: khai-thi
+
+---
+
+wenda20160415 27:56
+
+
+
+
+Hỏi: Thưa Thầy, mục đích tu hành của chúng con là thoát khỏi Lục Đạo Luân Hồi. Liệu rằng chư Bồ Tát hay thần Hộ Pháp có thể giúp chúng con tích lũy những phúc lành này, ban cho chúng con ít hơn và giúp chúng con tiết kiệm phúc lành để có thể đi lên cõi trời hay không ạ?
+
+
+
+
+Trả lời: Không, con phải tự nỗ lực. Con phải tự mình tích lũy, Bồ Tát sẽ không giúp con tích lũy. Ví dụ, nếu hôm nay con có nhiều phước lành, nhưng khi con tận hưởng chúng, phước lành của con sẽ ngày càng ít đi. Sư Phụ sẽ nhắc nhở các con, nhưng các con phải dựa vào chính mình để tích lũy phước lành. Vì vậy, một người dù giàu đến đâu, hãy nhìn Lý Gia Thành, ông ấy rất tằn tiện, và có rất nhiều người giàu cũng rất tằn tiện. Sư Phụ biết một người mới giàu có. Ông ta đã trở nên rất giàu nhờ tham gia vào bất động sản. Nhưng bây giờ lại rất nghèo rồi. (Ông ấy đã hết phước lành rồi phải không?) Đúng vậy. Vào thời điểm đó, Trung Quốc đang thu hút đầu tư nước ngoài và đất đai cực kỳ rẻ. Ông ta mua một mảnh đất rất rẻ, sau đó thuê một đội kỹ sư Hồng Kông xây dựng nhiều ngôi nhà. Không ngờ khi giá nhà đất tăng cao, ông ta đã bán từng căn một và kiếm được rất nhiều tiền. thành phố, đã trao cho ông nhiều danh hiệu. Nhưng có nhiều tiền rồi, lại phung phí, tiêu xài, hút thuốc, uống rượu, mua hải sản, mua xe sang... bây giờ lại không có tiền, thậm chí còn không nuôi được vợ, năm sáu đứa con, mới nhận ra rằng phước đã cạn kiệt. Hãy nhìn tấm gương của Lý Gia Thành. Ông ấy trân trọng phước lành! Cũng có nhiều người giàu không muốn vứt bỏ một cây tăm hoặc một mảnh giấy thật sạch sau khi sử dụng. Họ cất nó đi để sau này sử dụng.  Đây gọi là trân trọng phước lành, và bây giờ nó được gọi là tiết kiệm tài nguyên.  (người càng giàu thì càng nên tu hành tử tế và tích đức, dù không giàu thì cũng nên tiết kiệm). Đúng vậy, nên tiết kiệm ngay cả khi không có tiền, và cũng nên tiết kiệm ngay cả khi có tiền.
+
+
+
+
+---
