@@ -1,0 +1,13 @@
+---
+title: "Sư phụ đối xử rất tốt với người gi"
+datePublished: Tue Mar 10 2026 13:34:22 GMT+0000 (Coordinated Universal Time)
+cuid: cmmknizp4000002l89cqv4y8l
+slug: su-phu-doi-xu-rat-tot-voi-nguoi-gi-410
+canonical: http://timkhaithi.pmtl.site/2024/11/su-phu-oi-xu-rat-tot-voi-nguoi-gi.html
+tags: loi-tri-tue
+
+---
+
+thường xuyên đến viện dưỡng lão để bón cơm cho họ. Những người lớn tuổi đó đều là  theo tôn giáo phương Tây ( Đạo Thiên Chúa ). Mỗi tuần họ đều có một danh sách cầu nguyện. Họ tự nguyện cầu nguyện điều tốt đẹp cho một ai đó, lần nào họ cũng đặt tên của Sư phụ lên cầu nguyện trước . Nếu quý vị làm người, làm tốt đến mức có thể khiến người khác giúp quý vị cầu nguyện sau lưng, làm người như vậy là thành công rồi
+
+Có bao nhiêu người trong số quý vị bây giờ có thể khiến người khác cầu nguyện chúc phúc sau lưng ? Nếu ai có tự tin, cảm thấy người ta sẽ tốt với mình, sẽ vì mình mà cầu nguyện thì đứng dậy cho mọi người xem, xem có mấy người chịu giúp ? Nếu có chuyện gì xảy ra với Sư Phụ, Phật hữu trên toàn thế giới sẽ giúp Sư Phụ phóng sanh, là tại vì sao? Bởi vì Sư phụ đối xử tốt với người khác. Quý vị đến việc cười còn không muốn cười, cũng chẳng muốn nói lời hay ý đẹp với người khác, thì ai muốn quan tâm đến quý vị chứ?  Vấn nạn của xã hội hiện đại bây giờ là ai cũng sống ích kỉ, chúng ta những người học Phật phải hiểu ý nghĩa của việc cho đi——《Chúc phúc chính là sức mạnh》-Trích lục Lư Đài Trưởng kể lại tại Quan Âm Đường于观音堂
