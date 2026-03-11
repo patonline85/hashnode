@@ -1,0 +1,36 @@
+---
+title: "Dùng hình ảnh Bồ Tát để làm hình nền máy tính hoặc làm ảnh đại diện trò chuyện được không?"
+datePublished: Wed Mar 11 2026 09:34:30 GMT+0000 (Coordinated Universal Time)
+cuid: cmmluedw2000302l41ih6gib9
+slug: dung-hinh-anh-bo-tat-de-lam-hinh-nen-may-tinh-hoac-lam-anh-dai-dien-tro-chuyen-duoc-khong-511
+canonical: http://timkhaithi.pmtl.site/2024/10/dung-hinh-anh-bo-tat-e-lam-hinh-nen-may.html
+tags: khai-thi
+
+---
+
+Giải đáp Phật Học cầu hỏi 165 :
+
+
+
+
+Hỏi 98 : Xin hỏi Lư Đài Trưởng, con rất thích hình tượng Quán Thế Âm Bồ Tát ở Quan Âm Đường Úc, con có thể dùng hình ảnh Bồ Tát để làm hình nền máy tính hoặc làm ảnh đại diện trò chuyện không?
+
+
+
+
+Đáp 98 :
+
+Ảnh Bồ Tát hoặc ảnh Lư Đài Trưởng dùng làm màn hình, nếu như hiển thị theo kiểu nhấp nháy, vậy thì càng không tôn kính Bồ Tát. Ảnh tượng Bồ Tát cần được thờ một cách trang trọng, không thể sử dụng như trò chơi như vậy được
+
+Các loại ảnh trên máy tính đều là tồn tại dưới hình thức hư ảo, cho nên ảnh Bồ Tát trong máy tính không có cách nào khai quang và mời Bồ Tát nhập vào được. Hình ảnh của Lư Đài Trưởng cũng vậy
+
+Hơn nữa, loại ảnh hư ảo này không ngừng nhấp nháy, rất dễ rước vong linh vào
+
+Cho nên, nếu mỗi ngày đều xem và đọc những thứ không lành mạnh, hoặc là trong máy tính có chứa những thứ không tốt, mà lại để ảnh Bồ Tát và Lư Đài Trưởng để làm màn hình khoá, hình đại diện thì đều là không tôn kính
+
+Bồ Tát trong máy tính đều được in màu, ép dẻo hoặc đóng khung, theo phương pháp mà Lư Đài Trưởng dạy, xin sự bảo hộ của Quán Thế Âm Bồ Tát nhập vào tượng, sau đó thờ phụng cho tốt
+
+
+
+
+( xem chi tiết lại giải đáp Phật Học số 93, liên quan đến thờ cúng tượng Phật, Bồ Tát )
