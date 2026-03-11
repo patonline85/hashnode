@@ -1,0 +1,13 @@
+---
+title: "Sự khác biệt giữa việc đốt 21 ngôi nhà nhỏ vào ngày mồng một và ngày rằm âm lịch và việc đốt vài ngôi nhà nhỏ mỗi ngày là gì?"
+datePublished: Wed Mar 11 2026 11:34:34 GMT+0000 (Coordinated Universal Time)
+cuid: cmmlyos4r000102l7b3z85uli
+slug: su-khac-biet-giua-viec-dot-21-ngoi-nha-nho-vao-ngay-mong-mot-va-ngay-ram-am-lich-va-viec-dot-vai-ngoi-nha-nho-moi-ngay-la-gi-563
+canonical: http://timkhaithi.pmtl.site/2024/10/su-khac-biet-giua-viec-ot-21-ngoi-nha.html
+tags: nnn
+
+---
+
+🌈 wenda20150426A 49:22
+
+Thính giả nữ: Xin chào Sư Phụ, Pháp hội tại Singapore, người vất vả rồi! (Không vất vả)Sư phụ nói ngày mùng một và ngày rằm Tết có thể đốt tới 21 NNN phải không?(Đúng)Con xin hỏi Sư phụ, có một số sư huynh thường ngày không đốt nhà nhỏ, nhưng vào ngày mồng một và rằm tháng Giêng âm lịch, họ đốt 21 phiếu NNN, bình thường mỗi ngày đốt 4 phiếu, 5 phiếu có khác biệt không?Đài trưởng: Sư phụ cho con một ví dụ được không? Nếu bị sốt và cảm thấy không khỏe, con mỗi ngày đều không uống thuốc, đợi đến khi phát sốt rồi mới uống thuốc 1 lần? hay là mỗi ngày uống 1 chút thuốc mới tốt?(đương nhiên mỗi ngày uống chút thuốc tốt rồi)được đến khi mỗi ngày uống thuốc hiệu quả không tốt, liều lượng cần tăng lên để hạ sốt.1 tuần đốt 21 phiếu NNN cần thiết không?Cũng là cần thiết, tình trạng này cần xem ở con. Nếu như con trong lúc niệm kinh bình bình an an, vậy con cso thể đốt 21 phiếu NNN khiến con tốt hơn; Nếu như con đang niệm kinh thường chóng mặt, hoặc có linh tính, làm sao có thể đợi đến 21 phiếu mới đốt chứ? cần lập tức đốt, có mấy phiếu đốt mấy phiếu, nghe hiểu không?(vâng. Sư phụ, chính là nói binh thường bình bình an an, có thể mùng 1 và ngày rằm tháng Giêng âm lịch đốt?)Đúng(Vâng ạ, Cám ơn sư phụ khai thị)
