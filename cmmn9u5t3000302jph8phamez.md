@@ -1,0 +1,13 @@
+---
+title: "Không có bàn thờ Phật mỗi ngày có thể niệm nhiều Lễ Phật Đại Sám Hối Văn được không?"
+datePublished: Thu Mar 12 2026 09:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cmmn9u5t3000302jph8phamez
+slug: khong-co-ban-tho-phat-moi-ngay-co-the-niem-nhieu-le-phat-dai-sam-hoi-van-duoc-khong-185
+canonical: http://timkhaithi.pmtl.site/2024/10/khong-co-ban-tho-phat-moi-ngay-co-niem.html
+tags: lpdshv
+
+---
+
+Wenda20200920 01:08:44 
+
+Thính giả nam: Ngày 11/9, trong “Huyền nghệ vấn đáp”, Sư phụ nói rằng số lượng lớn lễ Phật đại sám hối phát nguyện mỗi ngày có thể được niệm nhiều. Xin hỏi Sư phụ, nếu như trong nhà không có bàn thờ Phật, trong tình huống như vậy có thể niệm nhiều mỗi ngày được không ạ?Đài trưởng: Như nhau.Thính giả nam: Sư phụ nói hiện tại Lễ Phật Đại Sám Hối Văn có thể niệm nhiều rồi, có phải Bồ Tát cũng là vì chúng sinh mà từ bi, để cho chúng con lập tức tiêu nghiệp. Bởi vì, vấn đề thiên thời hiện tại, là như vậy sao ạ?Đài trưởng: Đúng vậy, lập tức tiêu nghiệp.
