@@ -1,0 +1,13 @@
+---
+title: "Cần kết hợp bao nhiêu Ngôi Nhà Nhỏ khi phát nguyện niệm nhiều Lễ Phật Đại Sám Hối Văn"
+datePublished: Thu Mar 12 2026 07:34:24 GMT+0000 (Coordinated Universal Time)
+cuid: cmmn5jscl000202job5mbc0m0
+slug: can-ket-hop-bao-nhieu-ngoi-nha-nho-khi-phat-nguyen-niem-nhieu-le-phat-dai-sam-hoi-van-130
+canonical: http://timkhaithi.pmtl.site/2024/10/can-ket-hop-bao-nhieu-ngoi-nha-nho-khi.html
+tags: lpdshv
+
+---
+
+Wenda20141226 28:10 
+
+Thính giả nữ (một thính giả khác trong cùng một cuộc điện thoại): Chào Sư phụ! Chúc mừng năm mới! Trong năm mới chúc Sư phụ hoằng pháp thuận lợi, pháp thể an khang, cứu độ càng nhiều chúng sinh hữu duyên hơn nữa! Bình thường niệm Lễ Phật Đại Sám Hối Văn sám hối cụ thể chuyện sai lầm ở kiếp này, ví dụ như niệm 108 lần Lễ Phật Đại Sám Hối Văn sám hối một việc cụ thể, nhằm vào chuyện này có cần phải niệm Ngôi Nhà Nhỏ không ạ? 49 hay 69 thì tốt hơn?Đài trưởng: Nói chung, nếu quý vị phải sám hối thì có thể niệm 21 tấm trong số đó.Thính giả nữ: Tức là phát nguyện niệm Lễ Phật Đại Sám Hối Văn 108 lần về vấn đề này rồi kết hợp với 21 Ngôi Nhà Nhỏ ạ?Đài trưởng: Đúng vậy.
