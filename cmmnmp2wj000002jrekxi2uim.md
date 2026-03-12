@@ -1,0 +1,13 @@
+---
+title: "Khi tai họa đến phải bình tĩnh, nếu không sẽ gặp rắc rối"
+datePublished: Thu Mar 12 2026 15:34:25 GMT+0000 (Coordinated Universal Time)
+cuid: cmmnmp2wj000002jrekxi2uim
+slug: khi-tai-hoa-den-phai-binh-tinh-neu-khong-se-gap-rac-roi-824
+canonical: http://timkhaithi.pmtl.site/2024/10/khi-tai-hoa-en-phai-binh-tinh-neu-khong.html
+tags: khai-thi
+
+---
+
+Wenda20200814 14:51 
+
+Thính giả nữ: Sư phụ có lần nói trong một chương trình, cảm thấy vô cùng khó chịu, là chuẩn bị trải qua kiếp nạn, nhất định phải bình tĩnh, nếu không sẽ gặp rắc rối. Xin hỏi Sư phụ, cái này phải hiểu như thế nào ạ?Đài trưởng: Nếu một người rất khó chịu, chính là họ đã bắt đầu gặp rắc rối rồi. Ta hỏi con, ví dụ như sắp có động đất, có đủ loại chim bay lên, chim bay cá nhảy tại động, đúng không?Thính giả nữ: Uhmm.Đài trưởng: Nếu hôm nay trước khi cãi nhau, có phải con rất tức giận không? Cơn tức giận lớn đến mức sau đó bắt đầu cãi nhau.Thính giả nữ: Uhmm. Điều đó có nghĩa là nếu chúng con chịu đựng thì chúng con có thể tự mình hóa giải, nếu không thì có thể sẽ có kiếp nạn lớn ạ?Đài trưởng: Đương nhiên. Ở đây phải giải thích một chút, “qua kiếp” không phải là “qua tiết” sinh nhật, mà là qua một kiếp nạn, kiếp số.Thính giả nữ: Đúng vậy ạ.Đài trưởng: Nếu như muốn qua kiếp, con người sẽ vô hình trung buồn bực, liền muốn nổi giận, liền muốn không vui, ôm một bụng tức giận, lúc này nếu như con có thể hóa giải, đương nhiên không phải con đã qua kiếp sao?Thính giả nữ: Dạ. Cảm ơn sư phụ.
