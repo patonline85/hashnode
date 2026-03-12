@@ -1,0 +1,13 @@
+---
+title: "Thứ tự trước sau của niệm Lễ Phật Đại Sám Hối Văn và đốt Ngôi Nhà Nhỏ"
+datePublished: Thu Mar 12 2026 11:34:21 GMT+0000 (Coordinated Universal Time)
+cuid: cmmne4cse000102jp7zq34qdq
+slug: thu-tu-truoc-sau-cua-niem-le-phat-dai-sam-hoi-van-va-dot-ngoi-nha-nho-287
+canonical: http://timkhaithi.pmtl.site/2024/10/thu-tu-truoc-sau-cua-niem-le-phat-ai.html
+tags: lpdshv
+
+---
+
+Wenda20200327 28:06 
+
+Thính giả nữ: Vào những ngày đặc biệt chúng con có thể niệm nhiều Lễ Phật Đại Sám Hối Văn, còn phải kết hợp với Ngôi Nhà Nhỏ, niệm nhiều Lễ Phật Đại Sám Hối Văn, còn có đốt Ngôi Nhà Nhỏ có thứ tự trước sau không ạ?Đài trưởng: Nói chung, con phải xem. Ví dụ, nếu người quá cố này chưa được cứu độ, trước tiên con nên niệm Lễ Phật Đại Sám Hối Văn. Nếu con không biết người quá cố này đã được cứu độ hay chưa, Lễ Phật Đại Sám Hối Văn này con niệm cho họ, con nhất định phải niệm trước, sau đó mới đốt Ngôi Nhà Nhỏ.Thính giả nữ: ỒĐài trưởng: Bình thường, linh hồn sau khi lấy Ngôi Nhà Nhỏ này thì liền rời đi, nếu để cho họ còn ở lại, thì lần sau con gặp nhiều phiền phức hơn nữa.Thính giả nữ: Nếu là người cần kinh của mình thì sao ạ?Đài trưởng: Người cần kinh của mình, vậy tốt nhất con cũng nên như vậy, có thể niệm sớm thì niệm sớm, không thể niệm sớm thì niệm xong ba lần, sau đó đem đốt, như vậy
