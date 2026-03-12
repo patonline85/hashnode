@@ -1,0 +1,13 @@
+---
+title: "Một người niệm kinh giúp cả nhà tránh khỏi tai họa"
+datePublished: Thu Mar 12 2026 13:34:18 GMT+0000 (Coordinated Universal Time)
+cuid: cmmniemb6000102jv47su5o35
+slug: mot-nguoi-niem-kinh-giup-ca-nha-tranh-khoi-tai-hoa-428
+canonical: http://timkhaithi.pmtl.site/2024/10/mot-nguoi-niem-kinh-giup-ca-nha-tranh.html
+tags: niem-kinh
+
+---
+
+Zongshu20200609 26:14 
+
+Thính giả nam: Chất lượng niệm kinh của con có tốt không ạ? Trong nhà chỉ có mình con niệm kinh, học Pháp Môn Tâm Linh.Đài trưởng: Ồ, nhờ có con, nếu con không niệm kinh thì năm ngoái gia đình con đã xảy ra chuyện lớn, năm nay cũng vậy. Đã có chuyện xảy ra vào tháng 3 năm nay. Vốn dĩ gia đình con sẽ gặp phiền toái. Sẽ bị lừa tiền hay gì đó. Dù sao thì con cũng sẽ bị mất tiền hay gì đó. Chính là bởi vì con niệm kinh (Ồ) niệm kinh rất tốt, chính mình ngẫm lại sẽ biết.Thính giả nam: Dạ, cảm tạ Sư phụ.
