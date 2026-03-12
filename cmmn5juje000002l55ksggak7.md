@@ -1,0 +1,13 @@
+---
+title: "Về việc ở nhà niệm Kinh hay là đến Quán Âm Đường niệm Kinh?"
+datePublished: Thu Mar 12 2026 07:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cmmn5juje000002l55ksggak7
+slug: ve-viec-o-nha-niem-kinh-hay-la-den-quan-am-duong-niem-kinh-183
+canonical: http://timkhaithi.pmtl.site/2024/10/ve-viec-o-nha-niem-kinh-hay-la-en-quan.html
+tags: niem-kinh
+
+---
+
+Wenda20200816 08:35 
+
+Thính giả nữ: Nếu mơ thấy Bồ Tát từ bi điểm hóa nói một ngày cụ thể có kiếp nạn, xin hỏi ngày đó nên ở nhà niệm Kinh, hay là đến Quán Âm Đường niệm Kinh thì tốt hơn ạ?Đài trưởng: Thực ra, đến Quán Âm Đường địa phương phải xem Bồ Tát có tới hay không, người phụ trách hội cộng tu Quán Âm Đường địa phương trường khí của họ có tốt hay không, còn có người phụ trách Quán Âm Đường trường khí có tốt hay không, đặc biệt là Bồ Tát có đến hay không?Thính giả nữ: Con hiểu rồi.Đài trưởng: Nếu như con cảm thấy trường khí trong nhà tốt hơn Quán Âm Đường thì con hãy ở nhà; Nếu như con cảm thấy trường khí của Quán Âm Đường tốt hơn so với trong nhà con thì con hãy đến Quán Âm Đường.Thính giả nữ: Dạ vâng.Đài trưởng: Nhưng nhất định phải biết, để đánh giá trong nhà và Quán Âm Đường chỗ nào tốt hơn, có một điều kiện: Con cảm giác một chút, bản thân con ở nhà niệm được Ngôi Nhà Nhỏ, kinh văn, hay là ở Quán Âm Đường niệm được? Nếu như ở Quán Âm Đường niệm không được, trường khí cho dù tốt, cũng không bằng con ở nhà niệm. Tạp niệm quá nặng, tạp niệm quá nhiều.Đài trưởng: Con hiểu rồi, cảm ơn Dư phụ từ bi khai thị.
