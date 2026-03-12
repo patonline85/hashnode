@@ -1,0 +1,13 @@
+---
+title: "Ý nghĩa của việc leo lên cao trong Tết Trùng Dương"
+datePublished: Thu Mar 12 2026 19:34:20 GMT+0000 (Coordinated Universal Time)
+cuid: cmmnv9mkh000002l7h7prabto
+slug: y-nghia-cua-viec-leo-len-cao-trong-tet-trung-duong-834
+canonical: http://timkhaithi.pmtl.site/2024/10/y-nghia-cua-viec-leo-len-cao-trong-tet.html
+tags: tet-trung-duong
+
+---
+
+Wenda20111218 65:47 
+
+Thính giả nam: Đài trưởng, tại sao Tết Trùng Dương phải leo lên cao (đăng cao)? “Đăng cao” có ý nghĩa gì ạ?Đài trưởng: “Đăng cao” có hai loại hàm nghĩa. Thứ nhất là để con nâng cao cảnh giới của mình vào lúc này. Bởi vì chờ vào tiết khí Tết Trùng Dương, có nhiều vị Bồ Tát từ cõi âm hoặc cõi trời sẽ giáng thế. Nếu như lên cao thì có thể nhìn thấy những vị Bồ Tát này. Giống như ta nói niệm kinh trên máy bay rất tốt, bởi vì trên máy bay chính là lên cao. Đăng cao niệm kinh mà nói, có thể nhận được trường khí của Bồ Tát, tất cả các kinh con niệm tụng đều sẽ có linh khí, và Ngôi Nhà Nhỏ đặc biệt linh nghiệm.Thứ hai, phàm là có thể leo lên cao, chạy lên trên, đều là tốt. Tết Trùng Dương lên cao chính là “Chi ma khai hoa tiết tiết cao – Cây vừng nở hoa, từng đốt cao” (giải thích của người dịch: Cây vừng nở hoa từ gốc lên ngọn, càng lên càng cao, đây là câu “yết hậu ngữ” dùng để nói về sự nghiệp, tiền tài, cuộc sống, học tập… càng ngày càng tốt), cũng chính là hy vọng Tết Trùng Dương này có thể đem lại may mắn cho chúng ta, để cho chúng ta càng ngày càng tốt, tựa như năm mới, “Ôi, chúc mừng phát tài, càng ngày càng tốt”, đạo lý là giống nhau.
