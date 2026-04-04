@@ -1,0 +1,26 @@
+---
+title: "[Thần Hộ pháp 12 con giáp có thuyết pháp gì]"
+datePublished: Sat Apr 04 2026 13:34:20 GMT+0000 (Coordinated Universal Time)
+cuid: cmnkdj98o000502le3y3r2int
+slug: than-ho-phap-12-con-giap-co-thuyet-phap-gi-626
+canonical: https://timkhaithi.pmtl.site/2026/01/than-ho-phap-12-con-giap-co-thuyet-phap_0326037807.html
+tags: khai-thi
+
+---
+
+wenda20160617 24:55
+
+Hỏi: Sư phụ, người phương Tây nghiên cứu 12 chòm sao, các chòm sao khác nhau có đặc điểm tính cách con người khác nhau, 12 chòm sao có thần bảo hộ tương ứng; còn có một cách nói, 12 con giáp cũng có thần bảo hộ tương ứng. Những điều này có thật không ạ? Trong Huyền học có thuyết pháp gì không? Xin Sư phụ khai thị.
+
+Sư phụ đáp: Toàn bộ đều phù hộ, toàn bộ đều không phù hộ. Bởi vì 12 con giáp đại biểu cho cả con người của con... Người Trung Quốc đều coi trọng 12 con giáp, 12 con giáp này bất kể là con giáp nào, con làm việc xấu, có Hộ pháp thần quản không? Con làm việc tốt có Hộ pháp thần phù hộ con không? Rất đơn giản, đều có cả đấy. Con dù có làm gì trên đất đai, thì ngay cả Thổ Địa công công cũng sẽ phù hộ con.
+
+
+
+
+wenda20160617 24:55  
+
+十二生肖护法神有什么说法
+
+男听众：师父，西方人研究十二星座，不同的星座有不同人的性格特征，十二星座有对应的守护神；还有一种说法，十二生肖也有对应的守护神。这些是真的吗？在玄学上有什么说法？请师父开示一下。
+
+台长答：全部保佑，全部不保佑。因为十二生肖就代表你整个人……中国人都讲究十二生肖，这十二生肖不管哪个生肖，你做坏事，有没有护法神管呢？你做好事有没有护法神保佑你？很简单，都有的啊。你哪怕土地上弄一弄，连土地公公都会保佑你。
