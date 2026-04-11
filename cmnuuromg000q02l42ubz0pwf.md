@@ -1,0 +1,43 @@
+---
+title: "Hóa Giải Ý Niệm Tà Dâm: Con Đường Tu Hành Đầy Thử Thách"
+datePublished: Sat Apr 11 2026 21:34:29 GMT+0000 (Coordinated Universal Time)
+cuid: cmnuuromg000q02l42ubz0pwf
+slug: hoa-giai-y-niem-ta-dam-con-duong-tu-hanh-day-thu-thach-574
+canonical: https://timkhaithi.pmtl.site/2025/12/hoa-giai-y-niem-ta-dam-con-uong-tu-hanh.html
+tags: ta-dam
+
+---
+
+📜 Khai Thị Về Giới Dâm (Tà Dâm) - Wenda20130224A (37:30)
+
+🙇Thính giả nam hỏi: Còn về Giới Dâm, tức là tà dâm. Nói nghiêm khắc mà xét, ý dâm (dâm dục trong ý nghĩ) trong tâm cũng nên được tính là một loại dâm dục đúng không ạ?
+
+🌈Đài Trưởng đáp: Hoàn toàn đúng.
+
+🙇Thính giả nam hỏi: Nói thật lòng, điều giới luật này đối với người tu hành chúng ta là khó giữ nhất, vậy phải giữ như thế nào? Ví dụ, con quản được hành vi của mình, nhưng những ý niệm ở tầng ý thức, có lúc con quả thật không thể quản được, lúc này phải làm sao?
+
+🌈Đài Trưởng đáp: Trước hết, ví dụ, một tháng con có ý dâm mỗi ngày một lần. Bắt đầu cần phải quản, con nói: "Điều này không tốt, Bồ Tát, con xin giới." Vậy thì con hai ngày, ba ngày mới có một lần, trong đầu nghĩ đến phụ nữ hoặc nghĩ đến đàn ông, được rồi, cái này đã là phạm giới rồi "Ôi chao, con làm sai rồi"; sau đó lại bốn năm ngày, rồi năm sáu ngày... Tức là đang không ngừng tăng cường giới luật của mình, trong tâm và trong ý niệm đang không ngừng hoàn thiện giới luật.
+Dần dần giới bỏ những thứ này, nếu không thể giới bỏ ngay lập tức, thì tần suất cũng phải kéo dài ra.
+
+🙇(Thính giả: Con hiểu rồi, tức là con đã giữ giới rồi, con không nên trốn tránh nó, mà nên tìm cách làm sao giữ cho tốt hơn.)
+
+🌈Đài Trưởng đáp: Đúng vậy, vì con đã giữ giới rồi. Ví dụ, bây giờ trên mạng có nhiều thứ không tốt, con đã xem, hôm nay vào blog đó, vào trang mạng đó, trong lòng con trước đây rất muốn xem, hôm nay con bắt đầu "Tôi không xem nữa". Thế rồi vài ngày sau con nhịn không được, xem một lần, "Ôi chao, niệm vài biến Lễ Phật Đại Sám Hối Văn"; sau đó con nói: "Tôi thật sự không xem nữa, tôi sợ rồi." Được, lại qua một khoảng thời gian, có lẽ qua lâu hơn, vài tháng, con lại xem một lần nữa, thì lại nói với Bồ Tát, từ từ từ từ... Giữ giới là giới bỏ được thôi.
+
+Giống như cai thuốc lá vậy, cai thuốc lá có một loại là cai từ từ, tức là dần dần giới bỏ; còn một loại là giới ngay lập tức. Giống như Phật pháp chúng ta nói về Đốn Ngộ và Tiệm Ngộ, có người là khai ngộ ngay lập tức, gọi là Đốn Ngộ; có người là dần dần khai ngộ, đó gọi là Tiệm Ngộ.
+
+Về vấn đề giới tà dâm còn có điều này, đó là giới (kiêng) là tà dâm, chứ không phải là sinh hoạt vợ chồng bình thường. Có nhiều thanh niên hỏi Đài Trưởng: "Đài Trưởng, bây giờ chúng con không kết hôn, hai người chúng con sống chung (đồng cư)." Bây giờ ở nước ngoài, phương Tây, điều này rất hợp pháp, hơn nữa còn được pháp luật thừa nhận. Cậu ấy hỏi tôi: "Đài Trưởng, cái này có tính là tà dâm không ạ?" Bây giờ tôi hỏi con, con nói cho tôi biết, cái này có tính là tà dâm không?
+
+🙇(Thính giả: Con nghĩ là có ạ.)
+
+🌈Đài Trưởng đáp: Ta nói cho con biết, nếu người con trai này không có người phụ nữ khác, hai người sống chung với nhau, sống như vợ chồng, nếu ở địa phương đó pháp luật thừa nhận, thì điều này không tính. Cậu ấy không ra ngoài làm bậy. Làm bậy (lăng nhăng) mới gọi là tà. Cậu ấy rất chung thủy với cô ấy. Bởi vì ở nước ngoài, đồng cư được xem là một chế độ, cũng là hợp lý hợp pháp, thuộc về việc pháp luật đồng ý cho hai người họ, có hiệu lực pháp lý.
+
+------------------------------
+🙏🙏🙏Xin Quán Thế Âm Bồ Tát từ bi, nếu trong quá trình con dịch và chia sẻ, có chỗ nào không đúng lý, không đúng pháp, xin Quán Thế Âm Bồ Tát, Chư vị Thần Hộ Pháp có thể tha thứ cho con.
+-------------------------------
+
+☀️ Wenda20130224A  37:30  
+關於五戒中的淫戒
+
+男聽衆：還有淫戒，就是邪淫。嚴格來講心中的意淫應該也算是一種淫（完全正確）實事求是地說，這條戒律對於我們修行人是最難守的，那麼該如何守？比如說我管住自己的行爲，但是意識層面的這種想法，有的時候自己確實是管不住，這個時候該怎麼辦？
+
+臺長答：首先，比方說一個月你每一天有一次意淫。開始要管了，你就說：“這個不好的，菩薩，我戒了。”那麼你兩天、三天來一次，腦子裏想想女人了或者想想男人了，好，這個已經是犯戒了“哎呀，我做錯了”；然後再四五天、再五六天……也就是說在不斷地加強自己的戒律，心中和意念當中在不斷地完善戒律。把這些慢慢地戒掉，如果一下子戒不掉，那頻率也要拉長（明白了，就是說既然我已經守戒了，我不應該去逃避它，應該是想辦法如何守得更好）對了，因爲你守戒了。比方說，現在網上有很多不好的東西你看了，今天到了這個博客上、網上，你心裏過去很想看，你今天開始“我不看了”。那麼過幾天你憋不住了，看了一次，哎呀，念幾遍禮佛大懺悔文；然後你說：“我真的再不看了，我怕了。”好，再過一段時間，可能過了更長，幾個月，你又看了一次了，那再跟菩薩講，慢慢慢慢……守戒就戒掉了呀。就像戒菸一樣的，戒菸有一種漸漸戒菸法，就是慢慢地戒掉；還有一種頓戒法，馬上就戒掉。就像我們佛法講的頓悟和漸悟，有的人是馬上開悟，叫頓悟；有的人是漸漸地開悟，那叫漸悟。關於戒邪淫的問題還有就是戒的是邪淫，不是正常的夫妻生活，有很多青年人問臺長說：“臺長，現在我們不結婚，我們兩個人同居了。”現在在國外西方是很合法的，而且是法律上承認的。他問我：“臺長，這算不算邪淫啊？”我現在考考你，你現在告訴我，這算不算邪淫?（我覺得應該算吧）我告訴你，如果這個男孩子沒有另外的女人，兩個人住在一起同居，像夫妻一樣過日子，如果在當地的法律上是承認的話，這個就不算。他沒有到外面去亂搞啊。亂搞就叫邪掉了，他就很忠於她的。因爲在海外，同居是作爲一個制度，也是合理合法的，屬於法律上同意他們兩個人，有法律效力的。
