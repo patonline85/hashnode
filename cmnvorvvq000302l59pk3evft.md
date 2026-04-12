@@ -1,0 +1,55 @@
+---
+title: "Sức khỏe yếu, Niệm Danh hiệu Quán Thế Âm Bồ Tát thay kinh: Có nên không?"
+datePublished: Sun Apr 12 2026 11:34:27 GMT+0000 (Coordinated Universal Time)
+cuid: cmnvorvvq000302l59pk3evft
+slug: suc-khoe-yeu-niem-danh-hieu-quan-the-am-bo-tat-thay-kinh-co-nen-khong-823
+canonical: https://timkhaithi.pmtl.site/2025/12/suc-khoe-yeu-niem-danh-hieu-quan-am-bo.html
+tags: cong-duc
+
+---
+
+Cơ thể không khỏe, không thể niệm kinh, có thể niệm danh hiệu Quán Thế Âm Bồ Tát không?
+
+Pháp Môn Tâm Linh's photo
+Pháp Môn Tâm Linh
+Dec 19, 2024
+
+Nam thính giả: Hiện nay, một số đồng tu lớn tuổi thực sự không khỏe, khi không thể niệm kinh, có thể giống như niệm danh hiệu A Di Đà Phật mà liên tục niệm danh hiệu Quán Thế Âm Bồ Tát được không? Đáp: Hoàn toàn có thể, niệm danh hiệu Quán Thế Âm Bồ Tát luôn có công đức (niệm như Nam Mô Quán Thế Âm Bồ Tát, Nam Mô Quán Thế Âm Bồ Tát phải không?). Nên niệm đầy đủ danh hiệu: Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát. ️ Wenda20200628 09:37 【身體不適念不動經丶可否念觀世音菩薩聖號】 男聽眾：現在有些年老的同修身體實在不適，念不動經的時候，可以像念阿彌陀佛的聖號一樣不斷地持續念觀世音菩薩聖號嗎 答：完全可以，念觀世音菩薩聖號一直有功德的（就南無觀世音菩薩，南無觀世音菩薩？）念全稱吧，南無大慈大悲救苦救難廣大靈感觀世音菩薩。 ️Wenda20200628 09:37 Nội dung chữ trong ảnh: 觀世音菩薩 有求必應 Dịch sang tiếng Việt: Quán Thế Âm Bồ Tát - Có cầu tất ứng
+
+
+
+
+
+Subscribe to our newsletter
+
+Read articles from Pháp Môn Tâm Linh 心靈法門 directly inside your inbox. Subscribe to the newsletter, and don't miss out.
+
+SUBSCRIBE
+ 
+MORE ARTICLES
+
+
+Pháp Môn Tâm Linh's photo
+Pháp Môn Tâm Linh
+【Từ Đông Chí đến mùng Ba Tết Âm Lịch, nên niệm Vãng Sanh Chú nhiều, điều này thích hợp cho tất cả mọ…
+Thính giả: Ở chương trình trước, một đồng tu có nói rằng khi nằm mơ, Bồ Tát đã khai thị cho anh ấy r…
+
+Pháp Môn Tâm Linh's photo
+Pháp Môn Tâm Linh
+Từ Đông Chí đến mùng Ba Tết Âm Lịch, nên niệm Vãng Sanh Chú nhiều, điều này thích hợp cho tất cả mọi…
+Từ Đông Chí đến mùng Ba Tết Âm Lịch, nên niệm Vãng Sanh Chú nhiều, điều này thích hợp cho tất cả mọi…
+
+Pháp Môn Tâm Linh's photo
+Pháp Môn Tâm Linh
+Công Đức Bảo Sơn Thần Chú
+《Công Đức Bảo Sơn Thần Chú 》, kiên trì tụng niệm thần chú này, có thể tích lũy thiện nghiệp công đức…
+Pháp Môn Tâm Linh 心靈法門
+©2025 Pháp Môn Tâm Linh 心靈法門
+Archive
+·
+Privacy policy
+·
+Terms
+Powered by Hashnode - Build your developer hub.
+Start your blog
+Create docs
