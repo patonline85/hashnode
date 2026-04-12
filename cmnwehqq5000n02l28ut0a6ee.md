@@ -1,0 +1,38 @@
+---
+title: "Con 2 tuổi chưa biết nói: Quả báo từ nghiệp bán hải sản, cần hơn 800 ‘ngôi nhà nhỏ’ và 10.000 cá phóng sinh"
+datePublished: Sun Apr 12 2026 23:34:23 GMT+0000 (Coordinated Universal Time)
+cuid: cmnwehqq5000n02l28ut0a6ee
+slug: con-2-tuoi-chua-biet-noi-qua-bao-tu-nghiep-ban-hai-san-can-hon-800-ngoi-nha-nho-va-10000-ca-phong-sinh-238
+canonical: https://timkhaithi.pmtl.site/2025/12/con-2-tuoi-chua-biet-noi-qua-bao-tu.html
+tags: khai-thi
+
+---
+
+Hai tuổi chưa biết nói là quả báo đời này; cha trước kia bán hải sản; cần hơn 800 ngôi nhà nhỏ, phóng sinh ít nhất 10.000 con cá
+Shuohua20160408 08:10 
+
+Nữ thính giả: Kính chào Sư phụ! Có một đồng tu, con gái hai tuổi đến nay vẫn chưa biết nói. Xin hỏi nên niệm kinh như thế nào?
+
+“Lư Đài Trưởng” đáp: Vấn đề này rất đơn giản, trước hết phải phát nguyện cho tốt, sám hối, phóng sinh, những việc này đều phải làm. Hai tuổi chưa biết nói là trên thân có vong linh  
+
+(Vậy phải giúp đứa trẻ niệm ngôi nhà nhỏ đúng không ạ?)
+
+ Đúng.
+(Thông thường trường hợp như vậy cần niệm bao nhiêu ngôi nhà nhỏ?) 
+
+Trên 800 tấm
+(Phóng sinh thì sao ạ?) 
+
+Phóng sinh ít nhất 10.000 con cá. Đây đã là hiện báo rồi, quả báo đời này.
+(Đúng vậy, lời Sư phụ nói rất đúng, chồng của đồng tu trước kia là người bán hải sản.)
+
+Đây là quả báo đời này cho ông ấy thấy, toàn bộ tiền kiếm được từ việc bán hải sản sẽ phải chi ra để chữa trị bệnh tật trên thân của con gái.
+
+***
+
+两岁孩子不会讲话，现世报，父亲过去卖海鲜；小房子要800张以上，放生至少一万条鱼
+Shuohua20160408 08:10 
+
+女听众：师父您好！同修两岁的女儿到现在还不会讲话，可以怎样念经呢？
+
+“卢台长”答：这种问题都是很简单的，叫她先要好好地许愿、忏悔、放生，这些都要做的。两岁不会讲话，身上有鬼啊（要帮她的孩子念小房子对吗？）对（一般像这样的案例要念多少张？）800张以上（放生呢？）放生至少一万条。这种已经是现报了，现世报（对，师父讲的没错，她的先生过去是卖海鲜的）现世报给他看的，会把他卖海鲜的钱全部花在为女儿看身上毛病。
