@@ -1,0 +1,32 @@
+---
+title: "MƠ THẤY CHẠY ĐI XẾP HÀNG ĂN CƠM"
+datePublished: Sat Apr 25 2026 19:34:24 GMT+0000 (Coordinated Universal Time)
+cuid: cmoeqn73o000402lbfiacdndp
+slug: mo-thay-chay-di-xep-hang-an-com-363
+canonical: https://timkhaithi.pmtl.site/2025/08/mo-thay-chay-i-xep-hang-com.html
+tags: giac-mo
+
+---
+
+Nam thính giả: Con nằm mơ thấy có người đang xếp hàng, con cũng chạy đến xếp hàng để ăn cơm. Điều này có ý nghĩa gì ạ?
+
+Đài Trưởng: Điều đó có nghĩa là con đang khao khát (pháp). Không có vấn đề gì cả, điều đó cho thấy con rất tinh tấn trong việc học Phật pháp.
+
+
+
+
+Wenda20171210B 27:06
+
+
+
+
+梦见跑去排队吃饭
+
+男听众：我梦中看见有人在排队，我也跑去排队吃饭。这个是什么呢？
+
+台长答：那就是如饥如渴，没什么问题的，说明你对学佛法很有精进力。
+
+
+
+
+Trong quá trình con dịch và chia sẻ nếu có gì chưa đúng lý, đúng pháp xin chư Phật, Bồ Tát,Long thiên hộ pháp , Sư phụ từ bi tha thứ cho con
