@@ -1,0 +1,20 @@
+---
+title: "Trích BTPP 4-42: Phân giải bản chất của sinh mệnh, hóa giải dục vọng nhân gian."
+datePublished: Sun Apr 26 2026 15:34:23 GMT+0000 (Coordinated Universal Time)
+cuid: cmofxidvd000302kwctdcdxvx
+slug: trich-btpp-4-42-phan-giai-ban-chat-cua-sinh-menh-hoa-giai-duc-vong-nhan-gian-814
+canonical: https://timkhaithi.pmtl.site/2025/08/trich-btpp-4-42-phan-giai-ban-chat-cua.html
+tags: btpp
+
+---
+
+Chúng ta cần từ bỏ những tranh luận, tranh cãi, tranh chấp vô tận, cùng những lời châm chọc mỉa mai trong nhân gian. Bởi vì ở nhân gian, những lời châm chọc mỉa mai, những tranh cãi và tranh chấp này là không có điểm dừng, tức là sẽ không bao giờ chấm dứt. Chúng ta là con người thì có năng lực gì để đi ngược dòng chảy đây? Chúng ta có bản lĩnh gì để đi ngược lại trào lưu đây? Ai ai cũng có tập khí xấu, mà còn mang tính ngoan cố. Tức là mỗi người đều có rất nhiều thói quen không tốt, mà những thói quen ấy lại rất khó sửa đổi. Tính ngoan cố là gì? Tức là không dễ thay đổi. Sư phụ dạy quý vị phải khắc ghi Phật, Bồ Tát vào trong tâm mình, phải để điều ấy ăn sâu bén rễ, như vậy quý vị mới có thể ngăn chặn được tất cả phiền não ở nhân gian. Quý vị cần xây dựng một bức tường thành trong nội tâm của mình, quý vị phải làm chủ được linh hồn của mình. Bức tường thành ấy là gì? Nếu Sư phụ chỉ nói như vậy thì có thể quý vị chưa hiểu rõ, nên Sư phụ lấy một ví dụ đơn giản để quý vị dễ hiểu: ví dụ như Sư phụ có một bức tường thành, bức tường đó chính là giới, định, tuệ, chính là sự chế ngự tham, sân, si, chính là việc không đi oán hận người khác. Vậy nên khi rất nhiều việc khiến quý vị sân hận kéo đến, quý vị có thể ngay lập tức ngăn chặn được; khi người khác dùng tiền để dụ dỗ quý vị, quý vị cũng có thể ngăn chặn được rất nhanh. Quý vị nghe hiểu không? Hôm nay anh Chu tin tưởng Quan Thế Âm Bồ Tát, thì bức tường thành ấy đã cắm rễ trong tâm vị ấy rồi, cho nên bất kể người khác nói gì, chỉ cần quý vị nghĩ đến Quan Thế Âm Bồ Tát, quý vị nhất định có thể sống được. Nếu số mệnh đã đến lúc phải đi, thì quý vị cũng đi thôi. Nhưng điều quan trọng là quý vị phải có được bức tường thành ấy trong tâm, hiểu chưa?
+
+Quý vị cần ghi nhớ, không được che lấp trí huệ Bát Nhã vốn có sẵn. Bát Nhã là gì, mọi người đều biết, Sư phụ từng giảng cho quý vị rồi, đó chính là trí huệ của chư Phật, chư Bồ Tát. Chúng ta không được để trí huệ Bát Nhã này bị che lấp, bởi vì đây là bản tính vốn có của con người. Vậy trong tình huống nào thì con người sẽ không có trí huệ? Là khi quý vị có tham, sân, si, lại còn thêm "mạn" và "nghi". “Mạn” là gì? Là ngạo mạn. “Nghi” là gì? Là hoài nghi, nghi ngờ người khác. Khi hoài nghi người khác thì trí huệ của bản thân sẽ mất đi. Sư phụ từng giảng cho quý vị về vở kịch của Shakespeare, trong đó có nhân vật tên là Othello. Ông ta rất yêu vợ mình, nhưng cuối cùng vì nghi ngờ vợ nên đã giết chết vợ mình. Nếu một người hoài nghi người khác quá nhiều, người đó có thể giết người và cũng sẽ hủy diệt chính mình. Một người ngạo mạn có thể đẩy hết các thiện duyên ra khỏi cuộc đời mình, vì thế mới gọi là tham, sân, si, mạn, nghi.
+
+
+
+
+🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho co
+
+n .
